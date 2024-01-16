@@ -1,17 +1,4 @@
----
-title: When God walked among us
-date: 2023-11-24 06:14:00 Z
----
 
-Characters
-
-- Agbero(Lion)
--Sleeping NSPPD(Lamb)
--Hungry Person(Touch someone to give him)
--From Iyana Ipaja to Lekki
--Woman selling akara(Normal treatment)
--White Garment(Gazing on him)
--Cool of the Evening
 
 He grabbed the upper roof of the bus, 'Ojota', 'Ojota', '100 naira', the bus was moving on as he barely stepped his feet on the ground. 'Kpa', 'Kpa', 'Kpa', the conductor banged the side of the front door. The bus kept moving, another person shouted. 'Shori' pe won fe sole ni. (Can't you see they want to come down). 'Oya', the bus finally came to a stop. 
 
