@@ -1,7 +1,4 @@
----
-title: When God walked among us
-date: 2023-11-24 06:14:00 Z
----
+
 
 Characters
 
