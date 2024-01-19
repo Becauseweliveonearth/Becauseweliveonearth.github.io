@@ -1,6 +1,6 @@
 
 # POSTS
-# ${\color{blue}POSTS}$
+${\section{\textsf{\color{blue}POSTS}}}$
 
 ## When God walked among us
 
