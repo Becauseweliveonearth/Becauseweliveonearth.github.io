@@ -1,7 +1,6 @@
 > Welcome to a writer's paradise, All things new!
 
 
-# Navigation Menu  
 # [About    ]      [Posts    ]   [Most Recent Post]   [Keep Reading!]
 _______________________________________________________________
 # > POSTS 
