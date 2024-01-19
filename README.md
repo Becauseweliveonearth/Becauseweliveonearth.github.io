@@ -1,12 +1,14 @@
 > Welcome to a writer's paradise, All things new!
-
+<!--
 # Navigation Menu
 # 1. About
 # 2. Posts
 # 3. Mos Recent Post
 # 4. Keep Reading!
 
-# > POSTS
+# > POSTS -->
+
+_______________________________________________________________
 
 ## When God walked among us
 
@@ -54,3 +56,7 @@ The smell of smoked fish, and children singing nigh songs rose through the air. 
 This was the house, he went in and saw her, she had slept off, were those dried tears, NSPDD playing on the phone nex to her. He sat on her bed, "Every gaze is on the lion and the lamb."
 
 "The LORD your God is in your midst, a mighty one who will save; he will rejoice over you with gladness; he will quiet you by his love; he will exult over you with loud singing." Zephaniah 3:17
+
+_________________________________________________________________________
+
+## More blog posts coming soon!
