@@ -1,7 +1,7 @@
 > Welcome to a writer's paradise, All things new!
 
 
-# [About    ](https://becauseweliveonearth.github.io/#when-god-walked-among-us)      [Posts    ](https://becauseweliveonearth.github.io/#when-god-walked-among-us)   [Most Recent Post](https://becauseweliveonearth.github.io/#when-god-walked-among-us)   [Keep Reading!](https://becauseweliveonearth.github.io/#when-god-walked-among-us)
+# [About    ](https://becauseweliveonearth.github.io/#when-god-walked-among-us)    |      [Posts    ](https://becauseweliveonearth.github.io/#when-god-walked-among-us) |  [Most Recent Post](https://becauseweliveonearth.github.io/#when-god-walked-among-us)  | [Keep Reading!](https://becauseweliveonearth.github.io/#when-god-walked-among-us)
 _______________________________________________________________
 # > POSTS 
 ## When God walked among us
