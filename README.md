@@ -1,6 +1,5 @@
 
-# POSTS
-${\huge\textsf{\color{blue}POSTS}}$
+# > POSTS
 
 ## When God walked among us
 
