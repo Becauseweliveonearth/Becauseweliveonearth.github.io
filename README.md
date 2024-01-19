@@ -8,7 +8,7 @@
 
 # > POSTS -->
 # Navigation Menu  
-# 1. About     # 2. Posts    # 3. Mos Recent Post  # 4. Keep Reading!
+# About     # Posts    # Most Recent Post  # Keep Reading!
 _______________________________________________________________
 
 ## When God walked among us
