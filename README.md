@@ -65,26 +65,26 @@ Oh he'll make something good off some words
 > You saw this heart from the beginning <br>
 > But still you put this story in your heart <br>
 > Even though it was ugly and disjointed<br>
-> You called it the best kind
-> You called me the best kind
-> So i'll sing
-> Hallelujah to the writer who came and made me new
-> Hallelujah to the writer who came and made me new
-> Thank you
-> So put me on your books now
-> And write me out write me out
-> Place me in your editor now
-> Until you see the story through me
-> And I'm ready to come out
-> And all that was wrong
-> It won't be wrong after this no
-> Not after this
-> And all those cliffhangers
-> Is finding life again
-> And a true friend that so happens to be a writer
-> Ohhhhh
-> Hallelujah to the writer who came and made me new
-> Hallelujah to the writer who came and made me new
+> You called it the best kind<br>
+> You called me the best kind<br>
+> So i'll sing<br>
+> Hallelujah to the writer who came and made me new<br>
+> Hallelujah to the writer who came and made me new<br>
+> Thank you<br>
+> So put me on your books now<br>
+> And write me out write me out<br>
+> Place me in your editor now<br>
+> Until you see the story through me<br>
+> And I'm ready to come out<br>
+> And all that was wrong<br>
+> It won't be wrong after this no<br>
+> Not after this<br>
+> And all those cliffhangers<br>
+> Is finding life again<br>
+> And a true friend that so happens to be a writer<br>
+> Ohhhhh<br>
+> Hallelujah to the writer who came and made me new<br>
+> Hallelujah to the writer who came and made me new<br>
 > Thank you
 > Cause you take broken stories
 > And make them beautiful
