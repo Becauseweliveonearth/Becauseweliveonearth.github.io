@@ -4,7 +4,7 @@
 >Then he added, “Now go and learn the meaning of this Scripture: ‘I want you to show mercy, not offer sacrifices.’ For I have come to call not those who think they are righteous, but those who know they are sinners.” Mathew 9:13.
 
 
->On today's episode of lifing, I am learning not to take things too seriously, imagine you are in a video game and you as a character gets angry over who spilled water on the floor or something trivial. From the players perspective, its all trivial and so today I realized all quarrels must seem trivial to God on some level.
+>>On today's episode of lifing, I am learning not to take things too seriously, imagine you are in a video game and you as a character gets angry over who spilled water on the floor or something trivial. From the players perspective, its all trivial and so today I realized all quarrels must seem trivial to God on some level.
 
 >On another level, the key to showing mercy is in how you judge yourself. You shoiuld judge yourself as someone who is living just bu the mercies of God, having recieved mercy.
 
