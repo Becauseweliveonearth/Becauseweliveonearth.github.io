@@ -9,6 +9,23 @@
 >>On another level, the key to showing mercy is in how you judge yourself. You should judge yourself as someone who is living just by the mercies of God, having recieved mercy.
 
 >>Sometimes it can be hard in areas where you excel and easier in areas where you are weak. Yet we have to believe the bible when God says we are all sinners. All have sinned and fallen short of the glory of God.
+
+>The Parable of the unforgiving servant
+>21 Then Peter came to him and asked, “Lord, how often should I forgive someone[i] who sins against me? Seven times?”<br>
+
+22 “No, not seven times,” Jesus replied, “but seventy times seven![j]<br>
+
+23 “Therefore, the Kingdom of Heaven can be compared to a king who decided to bring his accounts up to date with servants who had borrowed money from him. 24 In the process, one of his debtors was brought in who owed him millions of dollars.[k] 25 He couldn’t pay, so his master ordered that he be sold—along with his wife, his children, and everything he owned—to pay the debt.<br>
+
+26 “But the man fell down before his master and begged him, ‘Please, be patient with me, and I will pay it all.’ 27 Then his master was filled with pity for him, and he released him and forgave his debt.<br>
+
+28 “But when the man left the king, he went to a fellow servant who owed him a few thousand dollars.[l] He grabbed him by the throat and demanded instant payment.<br>
+
+29 “His fellow servant fell down before him and begged for a little more time. ‘Be patient with me, and I will pay it,’ he pleaded. 30 But his creditor wouldn’t wait. He had the man arrested and put in prison until the debt could be paid in full.<br>
+
+31 “When some of the other servants saw this, they were very upset. They went to the king and told him everything that had happened. 32 Then the king called in the man he had forgiven and said, ‘You evil servant! I forgave you that tremendous debt because you pleaded with me. 33 Shouldn’t you have mercy on your fellow servant, just as I had mercy on you?’ 34 Then the angry king sent the man to prison to be tortured until he had paid his entire debt.<br>
+
+35 “That’s what my heavenly Father will do to you if you refuse to forgive your brothers and sisters[m] from your heart.”<br>
 ______________________________________________________________
  ## Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)
 
