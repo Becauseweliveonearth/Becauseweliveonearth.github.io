@@ -32,7 +32,7 @@
 
 
 ______________________________________________________________
- <h2 style="text-align: center;" markdown="1;"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</h2>
+ <h2 style="text-align: center;" markdown="1"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</h2>
 
 ______________________________________________________________
 
@@ -100,7 +100,7 @@ ______________________________________________________________
 > on paper<br>
 
 
-## Jump to most recent post: [All Posts    ](https://becauseweliveonearth.github.io/#mercy-vs-judgemen)
+## Jump to most recent post: [Recent Posts    ](https://becauseweliveonearth.github.io/#mercy-vs-judgemen)
 
 <h3 style="text-align: center;"> <ins>All POSTS</ins>  </h3>
 1. [Writer oh Writer](https://becauseweliveonearth.com/#writer-oh-writer) tags: [life](https://becauseweliveonearth.com/#life)
