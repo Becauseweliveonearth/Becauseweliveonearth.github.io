@@ -28,10 +28,11 @@ ______________________________________________________________
 
 31 “When some of the other servants saw this, they were very upset. They went to the king and told him everything that had happened. 32 Then the king called in the man he had forgiven and said, ‘You evil servant! I forgave you that tremendous debt because you pleaded with me. 33 Shouldn’t you have mercy on your fellow servant, just as I had mercy on you?’ 34 Then the angry king sent the man to prison to be tortured until he had paid his entire debt.<br>
 
-35 “That’s what my heavenly Father will do to you if you refuse to forgive your brothers and sisters[m] from your heart.”<br>
+35 “That’s what my heavenly Father will do to you if you refuse to forgive your brothers and sisters[m] from your heart.”.
+
 
 ______________________________________________________________
- ## Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)
+ ## <p style="text-align: center;">Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</p>
 
 ______________________________________________________________
 
