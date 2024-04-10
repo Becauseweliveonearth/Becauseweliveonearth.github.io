@@ -1,4 +1,64 @@
-> Welcome to a writer's paradise, All things new!
+
+> Writer oh writer
+You saw this heart from the beginning
+But still you put this story in your heart
+Even though it was ugly and disjointed
+You called it the best kind
+You called me the best kind
+So i'll sing
+Hallelujah to the writer who came and made me new
+Hallelujah to the writer who came and made me new
+Thank you
+So put me on your books now
+And write me out write me out
+Place me in your editor now
+Until you see the story through me
+And I'm ready to come out
+And all that was wrong
+It won't be wrong after this no
+Not after this
+And all those cliffhangers
+Is finding life again
+And a true friend that so happens to be a writer
+Ohhhhh
+Hallelujah to the writer who came and made me new
+Hallelujah to the writer who came and made me new
+Thank you
+Cause you take broken stories
+And make them beautiful
+Oh you take broken stories
+And make them beautiful again
+Oh broken tales
+And make them beautiful
+Oh you take wrong tales and put the truth back in them again
+Cause you take broken tales
+And make them beautiful
+Oh you take the wrong fables
+And make them tell the truth again
+Oh broken tapes
+And make them whole in your eternal story again
+And somehow they fit in your eternal story again
+Oh you take wrong tales and put the truth back in them again
+Cause you take missing characters
+And put them back in the story again
+Oh you take silent characters
+And make the storyline theirs again
+Oh scrawny lines, hiding characters
+And make them truthfully beautiful again
+Oh you take tales going nowhere and put them back together again
+So i'll say
+Hallelujah to the writer who came and made me new
+Hallelujah to the writer who came and made me new
+I look just like you
+So come and go with me
+To the writers house, in his own story, where we as characters will actually come alive for the first time
+And you best believe
+Oh he'll something good
+Oh he'll make something good
+Yeah he'll make something good
+Oh he'll make something good off some words
+ on the paper
+
 
 
 # [About    ](https://becauseweliveonearth.github.io/#when-god-walked-among-us)    |      [Posts    ](https://becauseweliveonearth.github.io/#when-god-walked-among-us) |  [Most Recent Post](https://becauseweliveonearth.github.io/#when-god-walked-among-us)  | [Keep Reading!](https://becauseweliveonearth.github.io/#when-god-walked-among-us)
