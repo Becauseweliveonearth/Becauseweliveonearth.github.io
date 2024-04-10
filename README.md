@@ -10,7 +10,7 @@
 
 >>Sometimes it can be hard in areas where you excel and easier in areas where you are weak. Yet we have to believe the bible when God says we are all sinners. All have sinned and fallen short of the glory of God.
 ______________________________________________________________
-...................................................................................................... [All Posts    ](https://becauseweliveonearth.github.io/#all-posts) |  [Most Recent Post](https://becauseweliveonearth.com/#mercy-vs-judgement)  ..............................................................................................
+ [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)
 
 ______________________________________________________________
 
