@@ -63,7 +63,7 @@
 
 
 
-# [All Posts    ](https://becauseweliveonearth.github.io/#-all-posts) |  [Most Recent Post](https://becauseweliveonearth.com/#writer-oh-writer)) 
+##                             [All Posts    ](https://becauseweliveonearth.github.io/#-all-posts) |  [Most Recent Post](https://becauseweliveonearth.com/#writer-oh-writer)) 
 _______________________________________________________________
 # > All POSTS 
 1. [Writer oh Writer](https://becauseweliveonearth.com/#writer-oh-writer) tags: [life](https://becauseweliveonearth.com/#life)
