@@ -10,7 +10,7 @@
 
 >>Sometimes it can be hard in areas where you excel and easier in areas where you are weak. Yet we have to believe the bible when God says we are all sinners. All have sinned and fallen short of the glory of God.
 
- ><ins>The Parable of the unforgiving servant.</ins>
+ ><p style="text-align: center;"> <ins>The Parable of the unforgiving servant.</ins></p>
 
 21 Then Peter came to him and asked, “Lord, how often should I forgive someone[i] who sins against me? Seven times?”<br>
 
