@@ -32,7 +32,7 @@
 
 
 ______________________________________________________________
- ## <p style="text-align: center;">Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</p>
+ ## <p style="text-align: center;"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</p>
 
 ______________________________________________________________
 
