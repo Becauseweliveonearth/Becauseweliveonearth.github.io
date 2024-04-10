@@ -1,3 +1,9 @@
+## Welcome to mmCEsim
+
+<p align="center">
+  <img src="assets/images/Logo2.png" height="128">
+</p>
+
 ## Mercy vs Judgement
 ><p style="text-align: center;">There will be no mercy for those who have not shown mercy to others. But if you have been merciful, God will be merciful when he judges you. James 2:13.</p>
 
