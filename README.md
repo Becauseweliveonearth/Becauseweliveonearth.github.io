@@ -1,7 +1,7 @@
 ## Mercy vs Judgement
->There will be no mercy for those who have not shown mercy to others. But if you have been merciful, God will be merciful when he judges you. James 2:13.
+><p style="text-align: center;">There will be no mercy for those who have not shown mercy to others. But if you have been merciful, God will be merciful when he judges you. James 2:13.</p>
 
->Then he added, “Now go and learn the meaning of this Scripture: ‘I want you to show mercy, not offer sacrifices.’ For I have come to call not those who think they are righteous, but those who know they are sinners.” Mathew 9:13.
+><p style="text-align: center;">Then he added, “Now go and learn the meaning of this Scripture: ‘I want you to show mercy, not offer sacrifices.’ For I have come to call not those who think they are righteous, but those who know they are sinners.” Mathew 9:13.</p>
 
 
 >>On today's episode of lifing, I am learning not to take things too seriously, imagine you are in a video game and you as a character gets angry over who spilled water on the floor or something trivial. From the players perspective, its all trivial and so today I realized all quarrels must seem trivial to God on some level.
