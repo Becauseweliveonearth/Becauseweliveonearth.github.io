@@ -62,9 +62,10 @@
 > on paper<br>
 
 
-
-##                             [All Posts    ](https://becauseweliveonearth.github.io/#-all-posts) |  [Most Recent Post](https://becauseweliveonearth.com/#writer-oh-writer)) 
-_______________________________________________________________
+______________________________________________________________
+<p align="center"> ## [All Posts    ](https://becauseweliveonearth.github.io/#-all-posts) |  [Most Recent Post](https://becauseweliveonearth.com/#writer-oh-writer)
+</p>
+______________________________________________________________
 # > All POSTS 
 1. [Writer oh Writer](https://becauseweliveonearth.com/#writer-oh-writer) tags: [life](https://becauseweliveonearth.com/#life)
 
