@@ -63,7 +63,7 @@
 
 
 ______________________________________________________________
- ##[All Posts    ](https://becauseweliveonearth.github.io/#-all-posts) |  [Most Recent Post](https://becauseweliveonearth.com/#writer-oh-writer)
+<h3 style="text-align: center;"> ##  </h3> [All Posts    ](https://becauseweliveonearth.github.io/#-all-posts) |  [Most Recent Post](https://becauseweliveonearth.com/#writer-oh-writer)
 
 ______________________________________________________________
 <h3 style="text-align: center;"> <ins>All POSTS</ins>  </h3>
