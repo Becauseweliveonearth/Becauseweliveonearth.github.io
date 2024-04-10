@@ -5,6 +5,12 @@
 >On today's episode of lifing, I am learning not to tae things too seriously, imagine you are in a video game and you as a character gets angry over who spilled water on the floor or something trivial. From the players perspective, its all trivial and so today I realized all quarrells must seem trivial to God on some level.
 >On another level, the key to showing mercy is in how you judge yourself. You shoiuld judge yourself as someone who is living just bu the mercies of God, having recieved mercy.
 >Sometimes it can be hard in areas where you excel and easier in areas where you are weak. Yet we have to believe the bible when God says we are all sinners. All have sinned and fallen short of the glory of God.
+
+______________________________________________________________
+...................................................................................................... [All Posts    ](https://becauseweliveonearth.github.io/#all-posts) |  [Most Recent Post](https://becauseweliveonearth.com/#mercy-vs-judgement)  ..............................................................................................
+
+______________________________________________________________
+
 ## Writer oh Writer
 
 > Writer oh writer <br>
@@ -68,10 +74,8 @@
 > on paper<br>
 
 
-______________________________________________________________
-...................................................................................................... [All Posts    ](https://becauseweliveonearth.github.io/#all-posts) |  [Most Recent Post](https://becauseweliveonearth.com/#writer-oh-writer)  ..............................................................................................
 
-______________________________________________________________
 <h3 style="text-align: center;"> <ins>All POSTS</ins>  </h3>
 1. [Writer oh Writer](https://becauseweliveonearth.com/#writer-oh-writer) tags: [life](https://becauseweliveonearth.com/#life)
+2. [Mercy vs Judgement](https://becauseweliveonearth.com/#mercy-vs-judgement) tags: [life](https://becauseweliveonearth.com/#life)
 
