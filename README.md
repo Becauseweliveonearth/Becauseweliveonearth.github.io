@@ -61,8 +61,8 @@ Yeah he'll make something good
 Oh he'll make something good off some words
  on the paper
 ```
-> Writer oh writer
-> You saw this heart from the beginning
+> Writer oh writer <br>
+> You saw this heart from the beginning <br>
 > But still you put this story in your heart
 > Even though it was ugly and disjointed
 > You called it the best kind
