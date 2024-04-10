@@ -119,7 +119,7 @@ Oh he'll make something good off some words
 > Oh he'll make something good
 > Yeah he'll make something good
 > Oh he'll make something good off some words
-> on his paper
+> on paper
 
 
 
