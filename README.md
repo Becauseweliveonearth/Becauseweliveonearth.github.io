@@ -10,6 +10,8 @@
 
 >>Sometimes it can be hard in areas where you excel and easier in areas where you are weak. Yet we have to believe the bible when God says we are all sinners. All have sinned and fallen short of the glory of God.
 
+______________________________________________________________
+
  ><p style="text-align: center;"> <ins>The Parable of the unforgiving servant.</ins></p>
 
 21 Then Peter came to him and asked, “Lord, how often should I forgive someone[i] who sins against me? Seven times?”<br>
@@ -27,6 +29,7 @@
 31 “When some of the other servants saw this, they were very upset. They went to the king and told him everything that had happened. 32 Then the king called in the man he had forgiven and said, ‘You evil servant! I forgave you that tremendous debt because you pleaded with me. 33 Shouldn’t you have mercy on your fellow servant, just as I had mercy on you?’ 34 Then the angry king sent the man to prison to be tortured until he had paid his entire debt.<br>
 
 35 “That’s what my heavenly Father will do to you if you refuse to forgive your brothers and sisters[m] from your heart.”<br>
+
 ______________________________________________________________
  ## Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)
 
