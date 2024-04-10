@@ -1,4 +1,5 @@
 
+## Writer oh Writer
 > Writer oh writer
 > You saw this heart from the beginning
 > But still you put this story in your heart
@@ -61,7 +62,7 @@
 
 
 
-# [About    ](https://becauseweliveonearth.github.io/#when-god-walked-among-us)    |      [Posts    ](https://becauseweliveonearth.github.io/#when-god-walked-among-us) |  [Most Recent Post](https://becauseweliveonearth.github.io/#when-god-walked-among-us)  | [Keep Reading!](https://becauseweliveonearth.github.io/#when-god-walked-among-us)
+# [All Posts    ](https://becauseweliveonearth.github.io/#all-posts) |  [Most Recent Post](https://becauseweliveonearth.github.io/#when-god-walked-among-us) 
 _______________________________________________________________
 # > POSTS 
 ## When God walked among us
