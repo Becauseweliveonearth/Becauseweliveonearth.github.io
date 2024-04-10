@@ -1,6 +1,6 @@
 
 ## Writer oh Writer
-'''
+```
 Writer oh writer
 You saw this heart from the beginning
 But still you put this story in your heart
@@ -60,7 +60,7 @@ Oh he'll make something good
 Yeah he'll make something good
 Oh he'll make something good off some words
  on the paper
-'''
+```
 > Writer oh writer
 > You saw this heart from the beginning
 > But still you put this story in your heart
