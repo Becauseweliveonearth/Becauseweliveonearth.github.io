@@ -15,65 +15,65 @@
 ><p style="text-align: center;"><ins> Alignment</ins></p>
 
 
-I'm just a man, a rescued heart  <br>
-Pull me in the future, set me apart  <br>
-My destiny is at the door  <br>
-Lord, I wanna follow Your will for more  <br>
-My lust for life, get rid of it  <br>
-My heart is rest-assured  <br>
-I'd never live for the thrill of it  <br>
-On and on and on I'd search  <br>
-My God, His plan, He's running it  <br>
-My fear has found its cure  <br>
-Your love, now my deliverance, ooh  <br>
-Now it's 1:11  <br>
-A beginning, it's the start of accepting the call <br>
-It's a new endeavor <br>
-He breathed into my life, now everything aligns <br>
-Give me an anthem I can sing <br>
-I want a message that I can bring <br>
-Not fear of man, it's fear of God <br>
-Take me into battle, I want my sword <br>
-That's right <br>
-My lust for life, get rid of it <br>
-My heart is rest-assured <br>
-I'd never live for the thrill of it <br>
-On and on and on I'd search <br>
-My God, His plan, He's running it <br>
-My fear has found its cure <br>
-Your love, now my deliverance, ooh <br>
-Now it's 1:11 <br>
-A beginning, it's the start of accepting the call <br>
-It's a new endeavor <br>
-He breathed into my life, now everything aligns <br>
-Now it's 1:11 <br>
-Jesus didn't die for me to wonder why <br>
-Why I am living <br>
-Everything aligns, everything aligns <br>
-Breathe into my lungs, open up my eyes <br>
-Give me what I need to live out this life <br>
-I'm asking for more, I'm ending this war <br>
-Complacency kills; I'll follow You, Lord <br>
-Breathe into my lungs, open up my eyes <br>
-Give me what I need to live out this life <br>
-I'm asking for more, I'm ending this war <br>
-Complacency kills; I'll follow You, Lord <br>
-Breathe into my lungs, open up my eyes <br>
-Give me what I need to live out this life <br>
-I'm asking for more, I'm ending this war <br>
-Complacency kills; I'll follow You, Lord <br>
-Breathe into my lungs, open up my eyes <br>
-Give me what I need to live out this life <br>
-I'm asking for more, I'm ending this war <br>
-Complacency kills; I'll follow You, Lord <br>
-Everything aligns, aligns, aligns <br>
-Everything aligns, aligns, aligns <br>
-Everything aligns, aligns, aligns <br>
-Everything aligns, aligns, aligns <br>
-Everything <br>
-Everything aligns <br>
-Life's not mine <br>
-Jesus paid it all  <br>
+I'm just a man, a rescued heart  
+Pull me in the future, set me apart  
+My destiny is at the door  
+Lord, I wanna follow Your will for more  
+My lust for life, get rid of it 
+My heart is rest-assured  
+I'd never live for the thrill of it  
+On and on and on I'd search  
+My God, His plan, He's running it  
+My fear has found its cure 
+Your love, now my deliverance, ooh  
+Now it's 1:11  
+A beginning, it's the start of accepting the call 
+It's a new endeavor 
+He breathed into my life, now everything aligns 
+Give me an anthem I can sing 
+I want a message that I can bring 
+Not fear of man, it's fear of God 
+Take me into battle, I want my sword 
+That's right 
+My lust for life, get rid of it 
+My heart is rest-assured 
+I'd never live for the thrill of it 
+On and on and on I'd search 
+My God, His plan, He's running it 
+My fear has found its cure
+Your love, now my deliverance, ooh 
+Now it's 1:11 
+A beginning, it's the start of accepting the call
+It's a new endeavor 
+He breathed into my life, now everything aligns
+Now it's 1:11 
+Jesus didn't die for me to wonder why 
+Why I am living 
+Everything aligns, everything aligns 
+Breathe into my lungs, open up my eyes 
+Give me what I need to live out this life 
+I'm asking for more, I'm ending this war 
+Complacency kills; I'll follow You, Lord 
+Breathe into my lungs, open up my eyes 
+Give me what I need to live out this life 
+I'm asking for more, I'm ending this war 
+Complacency kills; I'll follow You, Lord 
+Breathe into my lungs, open up my eyes 
+Give me what I need to live out this life 
+I'm asking for more, I'm ending this war 
+Complacency kills; I'll follow You, Lord 
+Breathe into my lungs, open up my eyes 
+Give me what I need to live out this life 
+I'm asking for more, I'm ending this war 
+Complacency kills; I'll follow You, Lord 
+Everything aligns, aligns, aligns 
+Everything aligns, aligns, aligns 
+Everything aligns, aligns, aligns 
+Everything aligns, aligns, aligns 
+Everything 
+Everything aligns 
+Life's not mine 
+Jesus paid it all  
 ![RIDERS and Cicuit City Music](assets/images/111.JPG) 
 
 
@@ -216,4 +216,5 @@ God to Jacob”What’s more, I am with you, and I will protect you wherever you
 1. [Writer oh Writer](https://becauseweliveonearth.com/#writer-oh-writer) tags: [life](https://becauseweliveonearth.com/#life)
 2. [Mercy vs Judgement](https://becauseweliveonearth.com/#mercy-vs-judgement) tags: [life](https://becauseweliveonearth.com/#life)
 3. [The one who leaves vs The one who stays ](https://becauseweliveonearth.com/#the-one-who-leaves-vs-the-one-who-stays)
+4. [Cream Cheese and working for it](https://becauseweliveonearth.com/#cream-cheese-and-working-for-it)
 
