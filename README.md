@@ -6,7 +6,7 @@
     And if I am too poor, I may steal and thus insult God’s holy name. Prov 30:8-9 NLT</p>
 
 >>I like to think whether rich or poor, God gives each person just enough to satisfy their needs or expects them to take just enough to satisfy their needs. So the key is to be sober, learn not to live for the thrill of life, but also learn not to live below life. Why want to live forever if you don't enjoy life. The christian life is about living the same type of life in all circumstances. In abundance and abasement, which Apostle Paul learnt.
->>So concerning this cream cheese (cotage cheese) situation, I actually want to return it, but my life has become God's life and if God wants to grade almost 100 scripts through me. I will make a great cup of coffee, put my leg up and give God a go at it.
+>>So concerning this cream cheese (cotage cheese) situation, I actually want to return it, its pretty obvious that I would rather not work than have cream cheese. But my life has become God's life and if God wants to grade almost 100 scripts through me. I will make a great cup of coffee, put my leg up and give God a go at it.
 >>So my philosophy of work and the reward of it is currently similar to the five solas - soli Deo gloria (to the glory of God). sola gratia (by grace alone),sola fide (faith alone), solus Christus (through Christ alone) and sola scriptura (because it is ordained in the scripts for me). 
 
 ><p style="text-align: center;"> I know how to live on almost nothing or with everything. I have learned the secret of living in every situation, whether it is with a full stomach or empty, with plenty or little. Phil 4:12</p>
@@ -15,7 +15,7 @@
 ><p style="text-align: center;"><ins> Alignment</ins></p>
   |   | 
 | ------------- | 
-| I'm just a man, a rescued heart 
+| I'm just a man, a rescued heart  | 
 Pull me in the future, set me apart
 My destiny is at the door
 Lord, I wanna follow Your will for more
@@ -73,7 +73,7 @@ Everything aligns, aligns, aligns
 Everything
 Everything aligns
 Life's not mine
-Jesus paid it all  | 
+Jesus paid it all 
 ![RIDERS and Cicuit City Music](assets/images/111.JPG) 
 
 
