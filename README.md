@@ -6,7 +6,7 @@
     And if I am too poor, I may steal and thus insult God’s holy name. Prov 30:8-9 NLT</p>
 
 >>I like to think whether rich or poor, God gives each person just enough to satisfy their needs or expects them to take just enough to satisfy their needs. So the key is to be sober, learn not to live for the thrill of life, but also learn not to live below life. Why want to live forever if you don't enjoy life. The christian life is about living the same type of life in all circumstances. In abundance and abasement, which Apostle Paul learnt.
->>So concerning this cream cheese (cotage cheese) situation, I actually want to return it, its pretty obvious that I would rather not work than have cream cheese. But my life has become God's life and if God wants to grade almost 100 scripts through me. I will make a great cup of coffee, put my leg up and give God a go at it.
+>>So concerning this cream cheese (cottage cheese) situation, I actually want to return it, its pretty obvious that I would rather not work than have cream cheese. But my life has become God's life and if God wants to grade almost 100 scripts through me. I will make a great cup of coffee, put my leg up and give God a go at it.
 >>So my philosophy of work and the reward of it is currently similar to the five solas - soli Deo gloria (to the glory of God). sola gratia (by grace alone),sola fide (faith alone), solus Christus (through Christ alone) and sola scriptura (because it is ordained in the scripts for me). 
 
 ><p style="text-align: center;"> I know how to live on almost nothing or with everything. I have learned the secret of living in every situation, whether it is with a full stomach or empty, with plenty or little. Phil 4:12</p>
@@ -15,65 +15,65 @@
 ><p style="text-align: center;"><ins> Alignment</ins></p>
 
 
-I'm just a man, a rescued heart  
-Pull me in the future, set me apart 
-My destiny is at the door
-Lord, I wanna follow Your will for more
-My lust for life, get rid of it
-My heart is rest-assured
-I'd never live for the thrill of it
-On and on and on I'd search
-My God, His plan, He's running it
-My fear has found its cure
-Your love, now my deliverance, ooh
-Now it's 1:11
-A beginning, it's the start of accepting the call
-It's a new endeavor
-He breathed into my life, now everything aligns
-Give me an anthem I can sing
-I want a message that I can bring
-Not fear of man, it's fear of God
-Take me into battle, I want my sword
-That's right
-My lust for life, get rid of it
-My heart is rest-assured
-I'd never live for the thrill of it
-On and on and on I'd search
-My God, His plan, He's running it
-My fear has found its cure
-Your love, now my deliverance, ooh
-Now it's 1:11
-A beginning, it's the start of accepting the call
-It's a new endeavor
-He breathed into my life, now everything aligns
-Now it's 1:11
-Jesus didn't die for me to wonder why
-Why I am living
-Everything aligns, everything aligns
-Breathe into my lungs, open up my eyes
-Give me what I need to live out this life
-I'm asking for more, I'm ending this war
-Complacency kills; I'll follow You, Lord
-Breathe into my lungs, open up my eyes
-Give me what I need to live out this life
-I'm asking for more, I'm ending this war
-Complacency kills; I'll follow You, Lord
-Breathe into my lungs, open up my eyes
-Give me what I need to live out this life
-I'm asking for more, I'm ending this war
-Complacency kills; I'll follow You, Lord
-Breathe into my lungs, open up my eyes
-Give me what I need to live out this life
-I'm asking for more, I'm ending this war
-Complacency kills; I'll follow You, Lord
-Everything aligns, aligns, aligns
-Everything aligns, aligns, aligns
-Everything aligns, aligns, aligns
-Everything aligns, aligns, aligns
-Everything
-Everything aligns
-Life's not mine
-Jesus paid it all 
+I'm just a man, a rescued heart  <br>
+Pull me in the future, set me apart  <br>
+My destiny is at the door  <br>
+Lord, I wanna follow Your will for more  <br>
+My lust for life, get rid of it  <br>
+My heart is rest-assured  <br>
+I'd never live for the thrill of it  <br>
+On and on and on I'd search  <br>
+My God, His plan, He's running it  <br>
+My fear has found its cure  <br>
+Your love, now my deliverance, ooh  <br>
+Now it's 1:11  <br>
+A beginning, it's the start of accepting the call <br>
+It's a new endeavor <br>
+He breathed into my life, now everything aligns <br>
+Give me an anthem I can sing <br>
+I want a message that I can bring <br>
+Not fear of man, it's fear of God <br>
+Take me into battle, I want my sword <br>
+That's right <br>
+My lust for life, get rid of it <br>
+My heart is rest-assured <br>
+I'd never live for the thrill of it <br>
+On and on and on I'd search <br>
+My God, His plan, He's running it <br>
+My fear has found its cure <br>
+Your love, now my deliverance, ooh <br>
+Now it's 1:11 <br>
+A beginning, it's the start of accepting the call <br>
+It's a new endeavor <br>
+He breathed into my life, now everything aligns <br>
+Now it's 1:11 <br>
+Jesus didn't die for me to wonder why <br>
+Why I am living <br>
+Everything aligns, everything aligns <br>
+Breathe into my lungs, open up my eyes <br>
+Give me what I need to live out this life <br>
+I'm asking for more, I'm ending this war <br>
+Complacency kills; I'll follow You, Lord <br>
+Breathe into my lungs, open up my eyes <br>
+Give me what I need to live out this life <br>
+I'm asking for more, I'm ending this war <br>
+Complacency kills; I'll follow You, Lord <br>
+Breathe into my lungs, open up my eyes <br>
+Give me what I need to live out this life <br>
+I'm asking for more, I'm ending this war <br>
+Complacency kills; I'll follow You, Lord <br>
+Breathe into my lungs, open up my eyes <br>
+Give me what I need to live out this life <br>
+I'm asking for more, I'm ending this war <br>
+Complacency kills; I'll follow You, Lord <br>
+Everything aligns, aligns, aligns <br>
+Everything aligns, aligns, aligns <br>
+Everything aligns, aligns, aligns <br>
+Everything aligns, aligns, aligns <br>
+Everything <br>
+Everything aligns <br>
+Life's not mine <br>
+Jesus paid it all  <br>
 ![RIDERS and Cicuit City Music](assets/images/111.JPG) 
 
 
