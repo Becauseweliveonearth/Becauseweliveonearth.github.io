@@ -13,8 +13,8 @@
 
 
 ><p style="text-align: center;"><ins> Alignment</ins></p>
-  |   | Second Header |
-| ------------- | ------------- |
+  |   | 
+| ------------- | 
 | I'm just a man, a rescued heart 
 Pull me in the future, set me apart
 My destiny is at the door
@@ -73,7 +73,8 @@ Everything aligns, aligns, aligns
 Everything
 Everything aligns
 Life's not mine
-Jesus paid it all  | ![RIDERS and Cicuit City Music](assets/images/111.JPG) |
+Jesus paid it all  | 
+![RIDERS and Cicuit City Music](assets/images/111.JPG) 
 
 
 
