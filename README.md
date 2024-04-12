@@ -15,7 +15,7 @@
 ><p style="text-align: center;"><ins> Alignment</ins></p>
   |   | Second Header |
 | ------------- | ------------- |
-| I'm just a man, a rescued heart | Content Cell  |
+| I'm just a man, a rescued heart 
 Pull me in the future, set me apart
 My destiny is at the door
 Lord, I wanna follow Your will for more
@@ -73,7 +73,7 @@ Everything aligns, aligns, aligns
 Everything
 Everything aligns
 Life's not mine
-Jesus paid it all  
+Jesus paid it all  | [/assets/images/111.JPG] |
 
 
 
