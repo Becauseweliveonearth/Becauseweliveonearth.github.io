@@ -73,7 +73,7 @@ Everything aligns, aligns, aligns
 Everything
 Everything aligns
 Life's not mine
-Jesus paid it all  | [/assets/images/111.JPG] |
+Jesus paid it all  | ![RIDERS and Cicuit City Music](assets/images/111.JPG) |
 
 
 
