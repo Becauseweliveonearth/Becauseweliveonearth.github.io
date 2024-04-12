@@ -1,3 +1,52 @@
+## Peace is alignment
+>>To live in peace is to live in alignment with God. God loves peace. In the presence of God it's peaceful, inside and out. The meaning of solomon is peace and God gave hime peace during his time -  only peacemakers appparently can build the house for God. 
+
+><p style="text-align: center;">Turn away from evil and do good. Search for peace, and work to maintain it.Psalm 34:14 NLT</p>
+
+>>Apparently peace is made, you can make peace. Your peace is not dependent on the other person, you can engender peace. You can seek peace as well. Peace can be sought, made and maintained through you.
+
+><p style="text-align: center;">My soul has dwelt too long
+With one who hates peace.
+7 I am for peace;
+But when I speak, they are for war.</p>
+
+>>Be careful though sometimes, a lack of peace for a long time can affect your soul, and even when you want peace you have no motivations to it. You become simply content with let sleeping dogs lie rather than addressing it.
+><p style="text-align: center;"> So those who are smart keep their mouths shut,
+    for it is an evil time. Amons5:13</p>
+
+><p style="text-align: center;">But I say, do not resist an evil person!</p>
+><p style="text-align: center;">Make sure that the light you think you have is not actually darkness.</p>
+
+>>How do we make sure we are walking this path with fear and trembling - not subjecting our souls to war but yet making sure we are factories of peace, making it happily. As the popular hymn says take it to God in prayer, Oh what peace we often forfeit, oh what needless pain we bear. (What a friend we have in Jesus, All our sins and griefs to bear, 1885)
+
+## The state to be found in which has rewards
+“God blesses those who are poor and realize their need for him,  
+    for the Kingdom of Heaven is theirs.  
+God blesses those who mourn,  
+    for they will be comforted.  
+God blesses those who are humble,  
+    for they will inherit the whole earth.  
+God blesses those who hunger and thirst for justice,  
+    for they will be satisfied.  
+God blesses those who are merciful,  
+    for they will be shown mercy.  
+God blesses those whose hearts are pure,  
+    for they will see God.  
+God blesses those who work for peace,  
+    for they will be called the children of God.  
+God blesses those who are persecuted for doing right,  
+    for the Kingdom of Heaven is theirs.  
+
+
+
+
+
+______________________________________________________________
+ <h2 style="text-align: center;" markdown="1"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</h2>
+
+______________________________________________________________
+
+# Previous Posts: 
 ## Cream Cheese and working for it
 >>As i reached for the very fancy cream cheese, organic and all(It was actually cottage cheese), I thought of how expensive it was. As I got home I recieved an email, assigning me work. My mind immediately got a correlation between fancy cream cheese and work, as though if you want fancy cream cheese be willing to workk for it. So thoughts, on woking for a particular lifestyle?
 ><p style="text-align: center;">Second, give me neither poverty nor riches!
@@ -76,15 +125,6 @@ Life's not mine
 Jesus paid it all    
 ![RIDERS and Cicuit City Music](assets/images/111.JPG)   
 
-
-
-
-______________________________________________________________
- <h2 style="text-align: center;" markdown="1"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</h2>
-
-______________________________________________________________
-
-# Previous Posts: 
 ## The one who leaves vs The one who stays 
 
 >>Recently I got into some popular celebrity lives and as the peacemaker that I am. I can say I get both sides. One side believes in accepting how you were born and living out the live ordained for you. The other believes the greater cause is to lead the people to new land, to greener pastures. I have admit, I relate more to the idea of leaving than staying but God has been teaching me recently the importance of accepting your divine destiny.
