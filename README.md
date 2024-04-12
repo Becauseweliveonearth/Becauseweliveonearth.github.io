@@ -15,7 +15,7 @@
 ><p style="text-align: center;"><ins> Alignment</ins></p>
 
 
-I'm just a man, a rescued heart   
+I'm just a man, a rescued heart  
 Pull me in the future, set me apart 
 My destiny is at the door
 Lord, I wanna follow Your will for more
