@@ -1,25 +1,27 @@
 ## Peace is alignment
->>To live in peace is to live in alignment with God. God loves peace. In the presence of God it's peaceful, inside and out. The meaning of solomon is peace and God gave hime peace during his time -  only peacemakers appparently can build the house for God. 
+>>To live in peace is to live in alignment with God. God loves peace. In the presence of God it's peaceful, inside and out. The meaning of solomon is peace and God gave him peace during his time -  only peacemakers appparently can build the house for God. 
 
-><p style="text-align: center;">Turn away from evil and do good. Search for peace, and work to maintain it.Psalm 34:14 NLT</p>
+<p style="text-align: center;">Turn away from evil and do good. Search for peace, and work to maintain it.Psalm 34:14 NLT</p>
 
 >>Apparently peace is made, you can make peace. Your peace is not dependent on the other person, you can engender peace. You can seek peace as well. Peace can be sought, made and maintained through you.
 
-><p style="text-align: center;">My soul has dwelt too long
+<p style="text-align: center;">My soul has dwelt too long
 With one who hates peace.
 7 I am for peace;
-But when I speak, they are for war.</p>
+But when I speak, they are for war. Psalm 120:6-7</p>
 
->>Be careful though sometimes, a lack of peace for a long time can affect your soul, and even when you want peace you have no motivations to it. You become simply content with let sleeping dogs lie rather than addressing it.
+>>Be careful though sometimes, a lack of peace for a long time can affect your soul, and even when you want peace you have no motivations to it. You become simply content with letting sleeping dogs lie rather than addressing it.
 ><p style="text-align: center;"> So those who are smart keep their mouths shut,
-    for it is an evil time. Amons5:13</p>
+    for it is an evil time. Amos5:13 </p>
 
-><p style="text-align: center;">But I say, do not resist an evil person!</p>
-><p style="text-align: center;">Make sure that the light you think you have is not actually darkness.</p>
+><p style="text-align: center;">But I say, do not resist an evil person! Matt 5:39 </p>
+><p style="text-align: center;">Make sure that the light you think you have is not actually darkness.Luke 11:35</p>
 
 >>How do we make sure we are walking this path with fear and trembling - not subjecting our souls to war but yet making sure we are factories of peace, making it happily. As the popular hymn says take it to God in prayer, Oh what peace we often forfeit, oh what needless pain we bear. (What a friend we have in Jesus, All our sins and griefs to bear, 1885)
+><p style="text-align: center;"><ins>Alignment </p></ins> 
+But now the Lord my God has given me rest on every side, and there is no adversary or disaster. 5 I intend, therefore, to build a temple for the Name of the Lord my God, as the Lord told my father David, when he said, ‘Your son whom I will put on the throne in your place will build the temple for my Name.’ 1 Kings 5:4-5
 
-## The state to be found in which has rewards
+><h2 style="text-align: center;"> The state to be found in which has rewards </h2>
 “God blesses those who are poor and realize their need for him,  
     for the Kingdom of Heaven is theirs.  
 God blesses those who mourn,  
@@ -36,9 +38,6 @@ God blesses those who work for peace,
     for they will be called the children of God.  
 God blesses those who are persecuted for doing right,  
     for the Kingdom of Heaven is theirs.  
-
-
-
 
 
 ______________________________________________________________
@@ -257,4 +256,5 @@ God to Jacob”What’s more, I am with you, and I will protect you wherever you
 2. [Mercy vs Judgement](https://becauseweliveonearth.com/#mercy-vs-judgement) tags: [life](https://becauseweliveonearth.com/#life)
 3. [The one who leaves vs The one who stays ](https://becauseweliveonearth.com/#the-one-who-leaves-vs-the-one-who-stays)
 4. [Cream Cheese and working for it](https://becauseweliveonearth.com/#cream-cheese-and-working-for-it)
+5. [Peace is alignment](https://becauseweliveonearth.com/#peace-is-alignment)
 
