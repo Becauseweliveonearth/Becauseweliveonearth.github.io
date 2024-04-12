@@ -1,5 +1,38 @@
+## The one who leaves vs The one who stays 
+
+>>Recently I got into some popular celebrity lives and as the peacemaker that I am. I can say I get both sides. One side believes in accepting how you were born and living out the live ordained for you. The other believes the greater cause is to lead the people to new land, to greener pastures. I have admit, I relate more to the idea of leaving than staying but God has been teaching me recently the importance of accepting your divine destiny.
+
+><p style="text-align: center;"> ”When it was Esther’s turn to go to the king, she accepted the advice of Hegai, the eunuch in charge of the harem. She asked for nothing except what he suggested, and she was admired by everyone who saw her.“ Esther‬ ‭2‬:‭15‬ ‭NLT‬‬ </p>
+
+><p style="text-align: center;">He shall choose our inheritance for us, the excellency of Jacob whom he loved. Selah. Psalm 47:4</p>
+
+>>Even in the patriarchs you have all three scenarios illustrated. Abraham who left his father’s house and traditions to form a new people who will be bound under the convent to his family. A nation as vast as the stars.
+>>Isaac who God told not to live where he was born and Jacob. In all these scenarios, as long as it was done in faith it pleased God. Whether to accept the traditions you have been given to carry, to diverge from what you have always known or to return to the traditions after running away. Accepting destiny can reveal itself in any number of ways.
+>>And so to this present day family - I feel very strongly about the side that believes in a place in life, a given station in life, it’s probably less stressful to believe that. Yet I have always remembered Jacob who kept trying to hack his way to what he wanted - even though it was always apportioned to him, but that is another story. The other side believes in making a new way, a new path by faith. Yet even Jacob after wrestling with God had to come to the place of acceptance.
+>>Faith determines the correct path. The side God is on determines the correct path. 
+The centrist in me, both sides are correct. After a long period of having a hard stance on everything, peace seems inconclusive, yet it gives space for God. Also "Feelings of compassion befit a pilgrim" (Pilgrim's progress, page 238). In any fight, both sides are hurting hard, this is the time to sympathize.
+
+><p style="text-align: center;"> God of Abraham, Isaac and Jacob</ins></p>
+
+”The Lord had said to Abram, “Leave your native country, your relatives, and your father’s family, and go to the land that I will show you.“
+‭‭Genesis‬ ‭12‬:‭1‬ ‭NLT‬‬
+
+”The Lord appeared to Isaac and said, “Do not go down to Egypt, but do as I tell you. Live here as a foreigner in this land, and I will be with you and bless you. I hereby confirm that I will give all these lands to you and your descendants, just as I solemnly promised Abraham, your father. He reopened the wells his father had dug, which the Philistines had filled in after Abraham’s death. Isaac also restored the names Abraham had given them.“
+‭‭Genesis‬ ‭26‬:‭2‬-‭3‬, ‭18‬ ‭NLT‬‬
+
+God to Jacob”What’s more, I am with you, and I will protect you wherever you go. One day I will bring you back to this land. I will not leave you until I have finished giving you everything I have promised you.”“
+‭‭Genesis‬ ‭28‬:‭15‬ ‭NLT‬‬
+
+”I will go with you down to Egypt, and I will bring you back again. You will die in Egypt, but Joseph will be with you to close your eyes.”“
+‭‭Genesis‬ ‭46‬:‭4‬ ‭NLT‬‬
 
 
+______________________________________________________________
+ <h2 style="text-align: center;" markdown="1"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</h2>
+
+______________________________________________________________
+
+# Previous Posts: 
 ## Mercy vs Judgement
 ><p style="text-align: center;">There will be no mercy for those who have not shown mercy to others. But if you have been merciful, God will be merciful when he judges you. James 2:13.</p>
 
@@ -34,13 +67,6 @@
 
 35 “That’s what my heavenly Father will do to you if you refuse to forgive your brothers and sisters[m] from your heart.”.
 
-
-______________________________________________________________
- <h2 style="text-align: center;" markdown="1"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</h2>
-
-______________________________________________________________
-
-# Previous Posts: 
 ## Writer oh Writer
 
 > Writer oh writer <br>
