@@ -1,13 +1,21 @@
 ## Cream Cheese and working for it
->>As i reached for the very ancy cream cheese, organic and all(It was actually cottage cheese), I thought of how expensive it was. As I got home I recieved an email, assigning me work. My mind immediately got a correlation between fancy cream cheese and work, as though if you want fancy cream cheese be willing to workk for it. So thoughts, on woking for a particular lifestyle?
+>>As i reached for the very fancy cream cheese, organic and all(It was actually cottage cheese), I thought of how expensive it was. As I got home I recieved an email, assigning me work. My mind immediately got a correlation between fancy cream cheese and work, as though if you want fancy cream cheese be willing to workk for it. So thoughts, on woking for a particular lifestyle?
 ><p style="text-align: center;">Second, give me neither poverty nor riches!
     Give me just enough to satisfy my needs.
 9 For if I grow rich, I may deny you and say, “Who is the Lord?”
     And if I am too poor, I may steal and thus insult God’s holy name. Prov 30:8-9 NLT</p>
 
+>>I like to think whether rich or poor, God gives each person just enough to satisfy their needs or expects them to take just enough to satisfy their needs. So the key is to be sober, learn not to live for the thrill of life, but also learn not to live below life. Why want to live forever if you don't enjoy life. The christian life is about living the same type of life in all circumstances. In abundance and abasement, which Apostle Paul learnt.
+>>So concerning this cream cheese (cotage cheese) situation, I actually want to return it, but my life has become God's life and if God wants to grade almost 100 scripts through me. I will make a great cup of coffee, put my leg up and give God a go at it.
+>>So my philosophy of work and the reward of it is currently similar to the five solas - soli Deo gloria (to the glory of God). sola gratia (by grace alone),sola fide (faith alone), solus Christus (through Christ alone) and sola scriptura (because it is ordained in the scripts for me). 
+
+><p style="text-align: center;"> I know how to live on almost nothing or with everything. I have learned the secret of living in every situation, whether it is with a full stomach or empty, with plenty or little. Phil 4:12</p>
+
+
+><p style="text-align: center;"><ins> Alignment</ins></p>
   |   | Second Header |
 | ------------- | ------------- |
-| I'm just a man, a rescued heart
+| I'm just a man, a rescued heart | Content Cell  |
 Pull me in the future, set me apart
 My destiny is at the door
 Lord, I wanna follow Your will for more
@@ -65,7 +73,7 @@ Everything aligns, aligns, aligns
 Everything
 Everything aligns
 Life's not mine
-Jesus paid it all  | Content Cell  |
+Jesus paid it all  
 
 
 
