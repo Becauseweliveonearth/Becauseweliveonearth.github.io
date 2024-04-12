@@ -15,7 +15,7 @@ But when I speak, they are for war. Psalm 120:6-7</p>
 ><p style="text-align: center;"> So those who are smart keep their mouths shut,
     for it is an evil time. Amos5:13 </p>
 ><p style="text-align: center;">But I say, do not resist an evil person! Matt 5:39 </p>
-><p style="text-align: center;">Make sure that the light you think you have is not actually darkness.Luke 11:35</p>
+><p style="text-align: center;">Make sure that the light you think you have is not actually darkness.Luke 11:35</p>    
 
 >>How do we make sure we are walking this path with fear and trembling - not subjecting our souls to war but yet making sure we are factories of peace, making it happily. As the popular hymn says take it to God in prayer, Oh what peace we often forfeit, oh what needless pain we bear. (What a friend we have in Jesus, All our sins and griefs to bear, 1885)
 
