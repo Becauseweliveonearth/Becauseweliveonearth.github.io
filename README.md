@@ -28,10 +28,10 @@ My fear has found its cure
 Your love, now my deliverance, ooh  
 Now it's 1:11  
 A beginning, it's the start of accepting the call 
-It's a new endeavor 
-He breathed into my life, now everything aligns 
-Give me an anthem I can sing 
-I want a message that I can bring 
+It's a new endeavor  
+He breathed into my life, now everything aligns   
+Give me an anthem I can sing   
+I want a message that I can bring  
 Not fear of man, it's fear of God 
 Take me into battle, I want my sword 
 That's right 
