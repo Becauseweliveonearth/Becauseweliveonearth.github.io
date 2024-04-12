@@ -1,3 +1,80 @@
+## Cream Cheese and working for it
+>>As i reached for the very ancy cream cheese, organic and all(It was actually cottage cheese), I thought of how expensive it was. As I got home I recieved an email, assigning me work. My mind immediately got a correlation between fancy cream cheese and work, as though if you want fancy cream cheese be willing to workk for it. So thoughts, on woking for a particular lifestyle?
+><p style="text-align: center;">Second, give me neither poverty nor riches!
+    Give me just enough to satisfy my needs.
+9 For if I grow rich, I may deny you and say, “Who is the Lord?”
+    And if I am too poor, I may steal and thus insult God’s holy name. Prov 30:8-9 NLT</p>
+
+  |   | Second Header |
+| ------------- | ------------- |
+| I'm just a man, a rescued heart
+Pull me in the future, set me apart
+My destiny is at the door
+Lord, I wanna follow Your will for more
+My lust for life, get rid of it
+My heart is rest-assured
+I'd never live for the thrill of it
+On and on and on I'd search
+My God, His plan, He's running it
+My fear has found its cure
+Your love, now my deliverance, ooh
+Now it's 1:11
+A beginning, it's the start of accepting the call
+It's a new endeavor
+He breathed into my life, now everything aligns
+Give me an anthem I can sing
+I want a message that I can bring
+Not fear of man, it's fear of God
+Take me into battle, I want my sword
+That's right
+My lust for life, get rid of it
+My heart is rest-assured
+I'd never live for the thrill of it
+On and on and on I'd search
+My God, His plan, He's running it
+My fear has found its cure
+Your love, now my deliverance, ooh
+Now it's 1:11
+A beginning, it's the start of accepting the call
+It's a new endeavor
+He breathed into my life, now everything aligns
+Now it's 1:11
+Jesus didn't die for me to wonder why
+Why I am living
+Everything aligns, everything aligns
+Breathe into my lungs, open up my eyes
+Give me what I need to live out this life
+I'm asking for more, I'm ending this war
+Complacency kills; I'll follow You, Lord
+Breathe into my lungs, open up my eyes
+Give me what I need to live out this life
+I'm asking for more, I'm ending this war
+Complacency kills; I'll follow You, Lord
+Breathe into my lungs, open up my eyes
+Give me what I need to live out this life
+I'm asking for more, I'm ending this war
+Complacency kills; I'll follow You, Lord
+Breathe into my lungs, open up my eyes
+Give me what I need to live out this life
+I'm asking for more, I'm ending this war
+Complacency kills; I'll follow You, Lord
+Everything aligns, aligns, aligns
+Everything aligns, aligns, aligns
+Everything aligns, aligns, aligns
+Everything aligns, aligns, aligns
+Everything
+Everything aligns
+Life's not mine
+Jesus paid it all  | Content Cell  |
+
+
+
+______________________________________________________________
+ <h2 style="text-align: center;" markdown="1"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</h2>
+
+______________________________________________________________
+
+# Previous Posts: 
 ## The one who leaves vs The one who stays 
 
 >>Recently I got into some popular celebrity lives and as the peacemaker that I am. I can say I get both sides. One side believes in accepting how you were born and living out the live ordained for you. The other believes the greater cause is to lead the people to new land, to greener pastures. I have admit, I relate more to the idea of leaving than staying but God has been teaching me recently the importance of accepting your divine destiny.
@@ -12,7 +89,7 @@
 >>Faith determines the correct path. The side God is on determines the correct path. 
 The centrist in me, both sides are correct. After a long period of having a hard stance on everything, peace seems inconclusive, yet it gives space for God. Also "Feelings of compassion befit a pilgrim" (Pilgrim's progress, page 238). In any fight, both sides are hurting hard, this is the time to sympathize.
 
-><p style="text-align: center;"> God of Abraham, Isaac and Jacob</ins></p>
+><p style="text-align: center;"><ins> God of Abraham, Isaac and Jacob</ins></p>
 
 ”The Lord had said to Abram, “Leave your native country, your relatives, and your father’s family, and go to the land that I will show you.“
 ‭‭Genesis‬ ‭12‬:‭1‬ ‭NLT‬‬
@@ -26,13 +103,6 @@ God to Jacob”What’s more, I am with you, and I will protect you wherever you
 ”I will go with you down to Egypt, and I will bring you back again. You will die in Egypt, but Joseph will be with you to close your eyes.”“
 ‭‭Genesis‬ ‭46‬:‭4‬ ‭NLT‬‬
 
-
-______________________________________________________________
- <h2 style="text-align: center;" markdown="1"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</h2>
-
-______________________________________________________________
-
-# Previous Posts: 
 ## Mercy vs Judgement
 ><p style="text-align: center;">There will be no mercy for those who have not shown mercy to others. But if you have been merciful, God will be merciful when he judges you. James 2:13.</p>
 
@@ -135,4 +205,5 @@ ______________________________________________________________
 <h3 style="text-align: center;"> <ins>All POSTS</ins>  </h3>
 1. [Writer oh Writer](https://becauseweliveonearth.com/#writer-oh-writer) tags: [life](https://becauseweliveonearth.com/#life)
 2. [Mercy vs Judgement](https://becauseweliveonearth.com/#mercy-vs-judgement) tags: [life](https://becauseweliveonearth.com/#life)
+3. [The one who leaves vs The one who stays ](https://becauseweliveonearth.com/#the-one-who-leaves-vs-the-one-who-stays)
 
