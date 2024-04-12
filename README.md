@@ -14,11 +14,10 @@
 
 ><p style="text-align: center;"><ins> Alignment</ins></p>
 
-| First Header  | Second Header |
-| ------------- | ------------- |
-| I'm just a man, a rescued heart   | ![RIDERS and Cicuit City Music](assets/images/111.JPG)   |
-| Pull me in the future, set me apart | . |
-| My destiny is at the door|
+
+I'm just a man, a rescued heart   
+Pull me in the future, set me apart 
+My destiny is at the door
 Lord, I wanna follow Your will for more
 My lust for life, get rid of it
 My heart is rest-assured
@@ -75,6 +74,7 @@ Everything
 Everything aligns
 Life's not mine
 Jesus paid it all 
+![RIDERS and Cicuit City Music](assets/images/111.JPG) 
 
 
 
