@@ -31,50 +31,50 @@ A beginning, it's the start of accepting the call
 It's a new endeavor  
 He breathed into my life, now everything aligns   
 Give me an anthem I can sing   
-I want a message that I can bring  
-Not fear of man, it's fear of God 
-Take me into battle, I want my sword 
-That's right 
-My lust for life, get rid of it 
-My heart is rest-assured 
-I'd never live for the thrill of it 
-On and on and on I'd search 
-My God, His plan, He's running it 
-My fear has found its cure
-Your love, now my deliverance, ooh 
-Now it's 1:11 
-A beginning, it's the start of accepting the call
-It's a new endeavor 
-He breathed into my life, now everything aligns
-Now it's 1:11 
-Jesus didn't die for me to wonder why 
-Why I am living 
-Everything aligns, everything aligns 
-Breathe into my lungs, open up my eyes 
-Give me what I need to live out this life 
-I'm asking for more, I'm ending this war 
-Complacency kills; I'll follow You, Lord 
-Breathe into my lungs, open up my eyes 
-Give me what I need to live out this life 
-I'm asking for more, I'm ending this war 
-Complacency kills; I'll follow You, Lord 
-Breathe into my lungs, open up my eyes 
-Give me what I need to live out this life 
-I'm asking for more, I'm ending this war 
-Complacency kills; I'll follow You, Lord 
-Breathe into my lungs, open up my eyes 
-Give me what I need to live out this life 
-I'm asking for more, I'm ending this war 
-Complacency kills; I'll follow You, Lord 
-Everything aligns, aligns, aligns 
-Everything aligns, aligns, aligns 
-Everything aligns, aligns, aligns 
-Everything aligns, aligns, aligns 
-Everything 
-Everything aligns 
-Life's not mine 
-Jesus paid it all  
-![RIDERS and Cicuit City Music](assets/images/111.JPG) 
+I want a message that I can bring   
+Not fear of man, it's fear of God   
+Take me into battle, I want my sword   
+That's right   
+My lust for life, get rid of it   
+My heart is rest-assured   
+I'd never live for the thrill of it   
+On and on and on I'd search   
+My God, His plan, He's running it   
+My fear has found its cure  
+Your love, now my deliverance, ooh   
+Now it's 1:11   
+A beginning, it's the start of accepting the call  
+It's a new endeavor   
+He breathed into my life, now everything aligns   
+Now it's 1:11   
+Jesus didn't die for me to wonder why   
+Why I am living   
+Everything aligns, everything aligns   
+Breathe into my lungs, open up my eyes    
+Give me what I need to live out this life    
+I'm asking for more, I'm ending this war    
+Complacency kills; I'll follow You, Lord    
+Breathe into my lungs, open up my eyes   
+Give me what I need to live out this life    
+I'm asking for more, I'm ending this war    
+Complacency kills; I'll follow You, Lord    
+Breathe into my lungs, open up my eyes    
+Give me what I need to live out this life   
+I'm asking for more, I'm ending this war   
+Complacency kills; I'll follow You, Lord   
+Breathe into my lungs, open up my eyes   
+Give me what I need to live out this life   
+I'm asking for more, I'm ending this war   
+Complacency kills; I'll follow You, Lord   
+Everything aligns, aligns, aligns   
+Everything aligns, aligns, aligns   
+Everything aligns, aligns, aligns   
+Everything aligns, aligns, aligns   
+Everything   
+Everything aligns   
+Life's not mine   
+Jesus paid it all    
+![RIDERS and Cicuit City Music](assets/images/111.JPG)   
 
 
 
