@@ -1,3 +1,54 @@
+## Employers
+<p style="text-align: center;">For the LORD is God, and he created the heavens and earth and put everything in place. He made the world to be lived in, not to be a place of empty chaos.Isiah 45:18 NLT</p>
+Today I observe that everyone has a role to play in this world and eventually while some people end up as employers and others as employees. The bible implores us to take this positions as roles and not lord the over people, oppressing them or taking advantage of them. If you are responsible for if your employee is constantly worried about if they have food on their table then you are oppressive. If there is enough money in the system but some people are hoarding it and everyone is walking about stressed and they call on God then an evil thing has happened. 
+
+In summary, God wants everyone on earth to live good lives regardless of what they do and my prayer is that we all recognize our roles in our community and rather than lord it over others, see it as a service to God, a responsibility from God, a palace administrator of some sorts on earth temporarily in charge and let God use us to fufill his vision on earth.
+
+
+>>1Look here, you rich people: Weep and groan with anguish because of all the terrible troubles ahead of you. 2Your wealth is rotting away, and your fine clothes are moth-eaten rags. 3Your gold and silver are corroded. The very wealth you were counting on will eat away your flesh like fire. This corroded treasure you have hoarded will testify against you on the day of judgment. 4For listen! Hear the cries of the field workers whom you have cheated of their pay. The cries of those who harvest your fields have reached the ears of the Lord of Heaven’s Armies.
+5You have spent your years on earth in luxury, satisfying your every desire. You have fattened yourselves for the day of slaughter. 6You have condemned and killed innocent people, who do not resist you. James 5:4
+
+
+
+
+______________________________________________________________
+ <h2 style="text-align: center;" markdown="1"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</h2>
+
+______________________________________________________________
+
+# Previous Posts: 
+
+## What is inside a man
+>>The world around us is usually, what is inside a man. The environment reflects the imaginations of a man. The outside reflects the inside. Everything yousee was in th heart of a man before it came out. The cups, the charts, it was all the thoughts of someones heart. Who can stir a man's heart towards good things, who can stir a mans heart except the Lord. Yet there are captains, men of God who can stir the hearts of men to its natural direction. 
+
+Now I am looking at all the things in my room and how far they must have traveed to get to me. How much time was taken from idea to inception, 1 year, two days, twenty years. As we thank the farmer fr food by God, we should thank the printers for the books and everyone else as they released the gifts given to them by God. 
+
+Though good advice lies deep within the heart, a person with understanding will draw it out. Prov. 20:5 NLT 
+
+
+
+## And David trusted in God
+<p style="text-align: center;">For You will not leave my soul in Sheol, Nor will You allow Your Holy One to see corruption.Psalm 16:10 NLT</p>
+
+I imagine King David on his bed, imagining things beynd him. Did King David know what he was saying, that there will be a messiah, that Jesus will come. Was it a faint knowing. But today as I go through some uncertainties I remember that David trusted in God and many years later after david was long gone and buried God sent Jesus who came and won ressurection power for all who were held captive by death.
+
+We didn't invent this world and we don't get to dictate the rules of this world, and while we might understand some things in the world, they seem all so strange to us as pilgrims. But the only person that is outside all of this is God and why we need t hear the voice of God as like the coach outisde the game who we can trust with a 360 perspective.
+
+><h2 style="text-align: center;">Sometimes all you need is that if God answered David's prayer long after David was gone, if David trusted God I should trust God.</h2>
+
+
+## For the glory of God/God at work
+>>So I have decide to observe sabbath, at least on this website and skip one day of the week. So on this Monday, we will talk aout giving God the glory. Really it means giving God the credit. 
+Many times things happen on earth and we don't know how it happened or who to thank. You meeting that person, you applying to that school. All the invisible workings of God, giving God the glory is simply signing the work with God's name and singing his praises concerning it. 
+What about doing things for the glory of God. For some reason best known to God, the bible states that God has chosen us to participate in his glory. Although we cannot contain the weight of his glory, we can redirect it to God. Hence doing things for the glory of God implies a discovery of the glory of God. It means a revelation of God in that situation. Also in denying ourselves glory in that situation and giving the coming glory to God we simply walk in the correct order things are meant to be in.
+
+><h2 style="text-align: center;"> The awe of God </h2>
+14 “I will ransom them from the power of the grave;
+I will redeem them from death.
+O Death, I will be your plagues!
+O Grave, I will be your destruction!
+Pity is hidden from My eyes.” Hosea 13:14
+
 ## Peace is alignment
 >>To live in peace is to live in alignment with God. God loves peace. In the presence of God it's peaceful, inside and out. The meaning of solomon is peace and God gave him peace during his time -  only peacemakers appparently can build the house for God. 
 
@@ -41,13 +92,6 @@ God blesses those who work for peace,
 God blesses those who are persecuted for doing right,  
     for the Kingdom of Heaven is theirs.  
 
-
-______________________________________________________________
- <h2 style="text-align: center;" markdown="1"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</h2>
-
-______________________________________________________________
-
-# Previous Posts: 
 ## Cream Cheese and working for it
 >>As i reached for the very fancy cream cheese, organic and all(It was actually cottage cheese), I thought of how expensive it was. As I got home I recieved an email, assigning me work. My mind immediately got a correlation between fancy cream cheese and work, as though if you want fancy cream cheese be willing to workk for it. So thoughts, on woking for a particular lifestyle?
 ><p style="text-align: center;">Second, give me neither poverty nor riches!
