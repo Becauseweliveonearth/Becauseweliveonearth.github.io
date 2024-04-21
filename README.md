@@ -360,10 +360,10 @@ God to Jacob”What’s more, I am with you, and I will protect you wherever you
 4. [Cream Cheese and working for it](https://becauseweliveonearth.com/#cream-cheese-and-working-for-it)
 5. [Peace is alignment](https://becauseweliveonearth.com/#peace-is-alignment)
 6. [For the glory of God/God at work](https://becauseweliveonearth.com/#for-the-glory-of-GodGod-at-work)
-7. [And David trusted in God] (https://becauseweliveonearth.com/#and-david-trusted-in-God)
+7. [And David trusted in God](https://becauseweliveonearth.com/#and-david-trusted-in-God)
 8. [What is inside a man](https://becauseweliveonearth.com/#what-is-inside-a-man)
 9. [Employers](https://becauseweliveonearth.com/#employers)
 10.[The three Daniels](https://becauseweliveonearth.com/#the-three-daniels))
-11.[The minimum work to get started] (https://becauseweliveonearth.com/#the-minimum-work-to-get-started)
+11.[The minimum work to get started](https://becauseweliveonearth.com/#the-minimum-work-to-get-started)
 
 
