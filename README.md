@@ -1,3 +1,57 @@
+## The minimum work to get started
+>>Not sure how this got started but I was thing about when God made earth, he starte with the minimum, the earth, the man , the animals and systems to guie the man and God said, okay run on autopilot till you fully create the earth. The bible says no one knows what God is doing. But the world has vastly changed and has been changed by man since God left it all thoe many years ago and man has continued to develop it, maninting it for themselves to live and creating all sorts of thing with all sorts of things, orchestras, music, machines, complex knowledge. God created the minimum to get man going and man is creating like God would have created, sometimes individually, othertimes not.
+The first time I use amplified because it is just so beautiful, <p style="text-align: center;">He has also planted eternity [a sense of divine purpose] in the human heart [a mysterious longing which nothing under the sun can satisfy, except God]—yet man cannot find out (comprehend, grasp) what God has done (His overall plan) from the beginning to the end.</p>
+
+>> So I think o what it takes to get a project off the ground, to run on autopilot, obviously God checked in on Adam often and so is ever present. But like the original creator, we can learn a thing or two about what it takes to get a project started
+
+><h2 style="text-align: center;"> In the beginning </h2>
+1 In the beginning God created the heavens and the earth.[a] 2 The earth was formless and empty, and darkness covered the deep waters. And the Spirit of God was hovering over the surface of the waters.
+
+3 Then God said, “Let there be light,” and there was light. 4 And God saw that the light was good. Then he separated the light from the darkness. 5 God called the light “day” and the darkness “night.”
+
+And evening passed and morning came, marking the first day.
+
+6 Then God said, “Let there be a space between the waters, to separate the waters of the heavens from the waters of the earth.” 7 And that is what happened. God made this space to separate the waters of the earth from the waters of the heavens. 8 God called the space “sky.”
+
+And evening passed and morning came, marking the second day.
+
+9 Then God said, “Let the waters beneath the sky flow together into one place, so dry ground may appear.” And that is what happened. 10 God called the dry ground “land” and the waters “seas.” And God saw that it was good. 11 Then God said, “Let the land sprout with vegetation—every sort of seed-bearing plant, and trees that grow seed-bearing fruit. These seeds will then produce the kinds of plants and trees from which they came.” And that is what happened. 12 The land produced vegetation—all sorts of seed-bearing plants, and trees with seed-bearing fruit. Their seeds produced plants and trees of the same kind. And God saw that it was good.
+
+13 And evening passed and morning came, marking the third day.
+
+14 Then God said, “Let lights appear in the sky to separate the day from the night. Let them be signs to mark the seasons, days, and years. 15 Let these lights in the sky shine down on the earth.” And that is what happened. 16 God made two great lights—the larger one to govern the day, and the smaller one to govern the night. He also made the stars. 17 God set these lights in the sky to light the earth, 18 to govern the day and night, and to separate the light from the darkness. And God saw that it was good.
+
+19 And evening passed and morning came, marking the fourth day.
+
+20 Then God said, “Let the waters swarm with fish and other life. Let the skies be filled with birds of every kind.” 21 So God created great sea creatures and every living thing that scurries and swarms in the water, and every sort of bird—each producing offspring of the same kind. And God saw that it was good. 22 Then God blessed them, saying, “Be fruitful and multiply. Let the fish fill the seas, and let the birds multiply on the earth.”
+
+23 And evening passed and morning came, marking the fifth day.
+
+24 Then God said, “Let the earth produce every sort of animal, each producing offspring of the same kind—livestock, small animals that scurry along the ground, and wild animals.” And that is what happened. 25 God made all sorts of wild animals, livestock, and small animals, each able to produce offspring of the same kind. And God saw that it was good.
+
+26 Then God said, “Let us make human beings[b] in our image, to be like us. They will reign over the fish in the sea, the birds in the sky, the livestock, all the wild animals on the earth,[c] and the small animals that scurry along the ground.”
+
+27 So God created human beings[d] in his own image.
+    In the image of God he created them;
+    male and female he created them.
+
+28 Then God blessed them and said, “Be fruitful and multiply. Fill the earth and govern it. Reign over the fish in the sea, the birds in the sky, and all the animals that scurry along the ground.”
+
+29 Then God said, “Look! I have given you every seed-bearing plant throughout the earth and all the fruit trees for your food. 30 And I have given every green plant as food for all the wild animals, the birds in the sky, and the small animals that scurry along the ground—everything that has life.” And that is what happened.
+
+31 Then God looked over all he had made, and he saw that it was very good!
+
+And evening passed and morning came, marking the sixth day.
+
+
+
+
+## The three Daniels
+>>So I know three daniels, really this story should end here but because the story starts of great let's continue. These three daniels are their own persons and I am trying not to tie them to what they are to me, because I have a LOT I can say about that but they are their own persons. Are there any similarities between the three daniels, they are all chritians, they are all humans, they are all men. 
+
+>>I have nothing else to say. I know three daniels.
+
+
 ## Employers
 <p style="text-align: center;">For the LORD is God, and he created the heavens and earth and put everything in place. He made the world to be lived in, not to be a place of empty chaos.Isiah 45:18 NLT</p>
 Today I observe that everyone has a role to play in this world and eventually while some people end up as employers and others as employees. The bible implores us to take this positions as roles and not lord the over people, oppressing them or taking advantage of them. If you are responsible for if your employee is constantly worried about if they have food on their table then you are oppressive. If there is enough money in the system but some people are hoarding it and everyone is walking about stressed and they call on God then an evil thing has happened. 
