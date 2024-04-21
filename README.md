@@ -46,6 +46,18 @@ And evening passed and morning came, marking the sixth day.
 
 
 
+
+
+
+
+
+______________________________________________________________
+ <h2 style="text-align: center;" markdown="1"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</h2>
+
+______________________________________________________________
+
+# Previous Posts: 
+
 ## The three Daniels
 >>So I know three daniels, really this story should end here but because the story starts of great let's continue. These three daniels are their own persons and I am trying not to tie them to what they are to me, because I have a LOT I can say about that but they are their own persons. Are there any similarities between the three daniels, they are all chritians, they are all humans, they are all men. 
 
@@ -61,16 +73,6 @@ In summary, God wants everyone on earth to live good lives regardless of what th
 
 >>1Look here, you rich people: Weep and groan with anguish because of all the terrible troubles ahead of you. 2Your wealth is rotting away, and your fine clothes are moth-eaten rags. 3Your gold and silver are corroded. The very wealth you were counting on will eat away your flesh like fire. This corroded treasure you have hoarded will testify against you on the day of judgment. 4For listen! Hear the cries of the field workers whom you have cheated of their pay. The cries of those who harvest your fields have reached the ears of the Lord of Heaven’s Armies.
 5You have spent your years on earth in luxury, satisfying your every desire. You have fattened yourselves for the day of slaughter. 6You have condemned and killed innocent people, who do not resist you. James 5:4
-
-
-
-
-______________________________________________________________
- <h2 style="text-align: center;" markdown="1"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</h2>
-
-______________________________________________________________
-
-# Previous Posts: 
 
 ## What is inside a man
 >>The world around us is usually, what is inside a man. The environment reflects the imaginations of a man. The outside reflects the inside. Everything yousee was in th heart of a man before it came out. The cups, the charts, it was all the thoughts of someones heart. Who can stir a man's heart towards good things, who can stir a mans heart except the Lord. Yet there are captains, men of God who can stir the hearts of men to its natural direction. 
@@ -357,4 +359,11 @@ God to Jacob”What’s more, I am with you, and I will protect you wherever you
 3. [The one who leaves vs The one who stays ](https://becauseweliveonearth.com/#the-one-who-leaves-vs-the-one-who-stays)
 4. [Cream Cheese and working for it](https://becauseweliveonearth.com/#cream-cheese-and-working-for-it)
 5. [Peace is alignment](https://becauseweliveonearth.com/#peace-is-alignment)
+6. [For the glory of God/God at work](https://becauseweliveonearth.com/#for-the-glory-of-GodGod-at-work)
+7. [And David trusted in God] (https://becauseweliveonearth.com/#and-david-trusted-in-God)
+8. [What is inside a man](https://becauseweliveonearth.com/#what-is-inside-a-man)
+9. [Employers](https://becauseweliveonearth.com/#employers)
+10.[The three Daniels](https://becauseweliveonearth.com/#the-three-daniels))
+11.[The minimum work to get started] (https://becauseweliveonearth.com/#the-minimum-work-to-get-started)
+
 
