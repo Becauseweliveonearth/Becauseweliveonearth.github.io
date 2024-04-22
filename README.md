@@ -36,6 +36,18 @@ The land and its people trembled in fear
     when they heard him roar.
 
 
+
+
+
+
+
+
+______________________________________________________________
+ <h2 style="text-align: center;" markdown="1"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</h2>
+
+______________________________________________________________
+
+# Previous Posts: 
 ## The minimum work to get started
 >>Not sure how this got started but I was thing about when God made earth, he starte with the minimum, the earth, the man , the animals and systems to guie the man and God said, okay run on autopilot till you fully create the earth. The bible says no one knows what God is doing. But the world has vastly changed and has been changed by man since God left it all thoe many years ago and man has continued to develop it, maninting it for themselves to live and creating all sorts of thing with all sorts of things, orchestras, music, machines, complex knowledge. God created the minimum to get man going and man is creating like God would have created, sometimes individually, othertimes not.
 The first time I use amplified because it is just so beautiful, <p style="text-align: center;">He has also planted eternity [a sense of divine purpose] in the human heart [a mysterious longing which nothing under the sun can satisfy, except God]—yet man cannot find out (comprehend, grasp) what God has done (His overall plan) from the beginning to the end.</p>
@@ -81,20 +93,6 @@ And evening passed and morning came, marking the second day.
 
 And evening passed and morning came, marking the sixth day.
 
-
-
-
-
-
-
-
-
-______________________________________________________________
- <h2 style="text-align: center;" markdown="1"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</h2>
-
-______________________________________________________________
-
-# Previous Posts: 
 
 ## The three Daniels
 >>So I know three daniels, really this story should end here but because the story starts of great let's continue. These three daniels are their own persons and I am trying not to tie them to what they are to me, because I have a LOT I can say about that but they are their own persons. Are there any similarities between the three daniels, they are all chritians, they are all humans, they are all men. 
@@ -403,5 +401,6 @@ God to Jacob”What’s more, I am with you, and I will protect you wherever you
 9. [Employers](https://becauseweliveonearth.com/#employers)
 10.[The three Daniels](https://becauseweliveonearth.com/#the-three-daniels))
 11.[The minimum work to get started](https://becauseweliveonearth.com/#the-minimum-work-to-get-started)
+12. [Sons of Zeruiah](https://becauseweliveonearth.com/#sons-of-zeruiah)
 
 
