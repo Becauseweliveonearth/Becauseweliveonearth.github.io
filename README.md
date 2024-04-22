@@ -1,3 +1,41 @@
+## Sons of Zeruiah
+<p style="text-align: center;">And even though I am the anointed king, these two sons of Zeruiah—Joab and Abishai—are too strong for me to control. So may the LORD repay these evil men for their evil deeds.”. 2 Samuel 3:39 NLT</p>
+>>I am not sure how many sons zeruiah had but it was very clear that zeruiah was david sister and his closes men in his army, although the ame fighting age as him were technically his nephews. We know David was the lat of 8 sons not counting daughters, so all of this is reasonable. 
+I often wonder what went into zeruiah mind in all of the happenings, three of her sons were fighting for David, Abishai, Joab and asahel. On another hand from the name she gave them, its obvious she raised three strong men who were godly. Zeruiah is the untold hero in this story.
+The effect of mothers cannot be underestimated on the children they raise. I looked at the stories of the kings of Isreal observing if there was a correlation between the mothers are the ways of the child.
+
+<p style="text-align: center;">Joash was seven years old when he became king, and he reigned in Jerusalem forty years. His mother was Zibiah from Beersheba. 2 Joash did what was pleasing in the Lord’s sight throughout the lifetime of Jehoiada the priest.
+    
+Amaziah was twenty-five years old when he became king, and he reigned in Jerusalem twenty-nine years. His mother was Jehoaddin[a] from Jerusalem. 
+Uzziah was sixteen years old when he became king, and he reigned in Jerusalem fifty-two years. His mother was Jecoliah from Jerusalem. 4 He did what was pleasing in the Lord’s sight, just as his father, Amaziah, had done.
+
+Jotham was twenty-five years old when he became king, and he reigned in Jerusalem sixteen years. His mother was Jerusha, the daughter of Zadok.
+Hezekiah was twenty-five years old when he became the king of Judah, and he reigned in Jerusalem twenty-nine years. His mother was Abijah, the daughter of Zechariah. 2 He did what was pleasing in the Lord’s sight, just as his ancestor David had done.</p>
+
+>>While it is not all the kings who their mothers are listed, there is a high correlation between the kings whose mothers are listed and their walk with God for the kingdom of Israel.
+><h2 style="text-align: center;"> A lioness </h2>
+“What is your mother?
+    A lioness among lions!
+She lay down among the young lions
+    and reared her cubs.
+3 She raised one of her cubs
+    to become a strong young lion.
+He learned to hunt and devour prey,
+    and he became a man-eater.
+>>she took another of her cubs
+    and taught him to be a strong young lion.
+6 He prowled among the other lions
+    and stood out among them in his strength.
+He learned to hunt and devour prey,
+    and he, too, became a man-eater.
+7 He demolished fortresses[a]
+    and destroyed their towns and cities.
+Their farms were desolated,
+    and their crops were destroyed.
+The land and its people trembled in fear
+    when they heard him roar.
+
+
 ## The minimum work to get started
 >>Not sure how this got started but I was thing about when God made earth, he starte with the minimum, the earth, the man , the animals and systems to guie the man and God said, okay run on autopilot till you fully create the earth. The bible says no one knows what God is doing. But the world has vastly changed and has been changed by man since God left it all thoe many years ago and man has continued to develop it, maninting it for themselves to live and creating all sorts of thing with all sorts of things, orchestras, music, machines, complex knowledge. God created the minimum to get man going and man is creating like God would have created, sometimes individually, othertimes not.
 The first time I use amplified because it is just so beautiful, <p style="text-align: center;">He has also planted eternity [a sense of divine purpose] in the human heart [a mysterious longing which nothing under the sun can satisfy, except God]—yet man cannot find out (comprehend, grasp) what God has done (His overall plan) from the beginning to the end.</p>
