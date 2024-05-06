@@ -1,0 +1,35 @@
+---
+title: BecauseWeLiveOnEarth
+timezone: UTC
+collections:
+  linesilike:
+    title: LinesILike
+    output: true
+  podcast:
+    title: Podcast
+    output: true
+  posts:
+    title: Posts
+    output: true
+  research:
+    title: Research
+    output: true
+  the-atlantic:
+    title: THE ATLANTIC
+    output: true
+  uploads:
+    title: Uploads
+    output: true
+defaults:
+- scope:
+    path: ''
+    type: posts
+  values:
+    layout: post
+    permalink: "/posts/:title/"
+- scope:
+    path: ''
+    type: pages
+  values:
+    layout: page
+permalink: pretty
