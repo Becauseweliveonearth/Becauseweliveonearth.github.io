@@ -8,7 +8,6 @@
   gtag('config', 'G-CEQ64BW6CD');
 </script>
 
-<button type="button" name="button" class="btn">Button element</button>
 
 ## Sons of Zeruiah
 <p style="text-align: center;">And even though I am the anointed king, these two sons of Zeruiah—Joab and Abishai—are too strong for me to control. So may the LORD repay these evil men for their evil deeds.”. 2 Samuel 3:39 NLT</p>
