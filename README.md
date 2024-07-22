@@ -1,3 +1,7 @@
+_includes/head_custom.html
+
+<button type="button" name="button" class="btn">Button element</button>
+
 ## Sons of Zeruiah
 <p style="text-align: center;">And even though I am the anointed king, these two sons of Zeruiah—Joab and Abishai—are too strong for me to control. So may the LORD repay these evil men for their evil deeds.”. 2 Samuel 3:39 NLT</p>
 >>I am not sure how many sons zeruiah had but it was very clear that zeruiah was david sister and his closes men in his army, although the ame fighting age as him were technically his nephews. We know David was the lat of 8 sons not counting daughters, so all of this is reasonable. 
