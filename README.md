@@ -9,7 +9,7 @@
 </script>
 
 
-[Latest](https://becauseweliveonearth.com/#we-are-made-incomplete){: .btn .btn-purple }[All Posts](https://becauseweliveonearth.github.io/#all-posts){: .btn .btn-purple }
+[Latest](https://becauseweliveonearth.com/#we-are-made-incomplete){: .btn .btn-purple }  | [All Posts](https://becauseweliveonearth.github.io/#all-posts){: .btn .btn-purple }
 
 
 ## We are made incomplete
