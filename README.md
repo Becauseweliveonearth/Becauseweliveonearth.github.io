@@ -14,6 +14,8 @@
 
 ## We are made incomplete
 >>The Bible says we were made in the image of God, so we relate to God on so many levels. God can talk, we can talk, God laughs, God feels, God has joy, patience - all things we can do or have the capacity to produce. But graually we notice that the similarities stop, we don't know all things, we are not omniscient, we are not omnipresent. To the fridge, we must seem like a god, able to  change fates or wills or at least location at a whim. Even when we see ourselves from a different perspective – God’s perspective “I have said, Ye are gods; and all of you are children of the most High.” Psalm 82:6. It echoes, it reverberates.
+
+
 >>	But one day, we find ourselves in complete tears hands outstretched there's something missing. If God has created us like him, there will be Gods everywhere, but in our adamic form we are gods,  almost like he took something out of himself and called it us. So we can be whole in him, so we can be satisfied in him, so we can be our true forms only by abiding in him. Yet still to be a god is no small feat. A lot can be done which just that that we can forget.  A great feat is what Jesus modeled -to be fully God yet submitted under authority. 
 
 <p style="text-align: center;">Trust in the LORD with all your heart, And lean not on your own understanding; In all your ways acknowledge Him, And He shall direct your paths. Proverbs 3:5-6</p>
