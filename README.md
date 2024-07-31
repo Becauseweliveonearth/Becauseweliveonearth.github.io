@@ -412,7 +412,7 @@ God to Jacob”What’s more, I am with you, and I will protect you wherever you
 7. [And David trusted in God](https://becauseweliveonearth.com/#and-david-trusted-in-God)
 8. [What is inside a man](https://becauseweliveonearth.com/#what-is-inside-a-man)
 9. [Employers](https://becauseweliveonearth.com/#employers)
-10.[The three Daniels](https://becauseweliveonearth.com/#the-three-daniels))
+10.[The three Daniels](https://becauseweliveonearth.com/#the-three-daniels)
 11.[The minimum work to get started](https://becauseweliveonearth.com/#the-minimum-work-to-get-started)
 12. [Sons of Zeruiah](https://becauseweliveonearth.com/#sons-of-zeruiah)
 13. [We are made incomplete](https://becauseweliveonearth.com/#we-are-made-incomplete)
