@@ -9,6 +9,21 @@
 </script>
 
 
+[Latest](https://becauseweliveonearth.com/#we-are-made-incomplete){: .btn .btn-purple }[All Posts](https://becauseweliveonearth.github.io/#all-posts){: .btn .btn-purple }
+
+
+## We are made incomplete
+>>The Bible says we were made in the image of God, so we relate to God on so many levels. God can talk, we can talk, God laughs, God feels, God has joy, patience, all things we can do or have the capacity to produce. But eventually we notice that the similarities stop, we don't know all things, we are not omniscient, we are not omnipresent. To the fridge, we must seem like a god, able to  change fates or wills or at least location at a whim. Even when we see ourselves from a different perspective – God’s perspective “I have said, Ye are gods; and all of you are children of the most High.” Psalm 82:6. It echoes, it reverberates.
+	But one day, we find ourselves in complete tears hands outstretched there's something missing. If God has created us like him, there will be Gods everywhere, but in our adamic form we are gods,  almost like he took something out of himself and called it us. So we can be whole in him, so we can be satisfied in him, so we can be our true forms only by abiding in him. Yet still to be a god is no small feat. A lot can be done which just that that we can forget.  A great feat is what Jesus modeled -to be fully God yet submitted under authority. 
+
+<p style="text-align: center;">Trust in the LORD with all your heart, And lean not on your own understanding; In all your ways acknowledge Him, And He shall direct your paths. Proverbs 3:5-6</p>
+
+______________________________________________________________
+ <h2 style="text-align: center;" markdown="1"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</h2>
+
+______________________________________________________________
+
+# Previous Posts: 
 ## Sons of Zeruiah
 <p style="text-align: center;">And even though I am the anointed king, these two sons of Zeruiah—Joab and Abishai—are too strong for me to control. So may the LORD repay these evil men for their evil deeds.”. 2 Samuel 3:39 NLT</p>
 >>I am not sure how many sons zeruiah had but it was very clear that zeruiah was david sister and his closes men in his army, although the ame fighting age as him were technically his nephews. We know David was the lat of 8 sons not counting daughters, so all of this is reasonable. 
@@ -45,20 +60,7 @@ Their farms were desolated,
     and their crops were destroyed.
 The land and its people trembled in fear
     when they heard him roar.
-
-
-
-
-
-
-
-
-______________________________________________________________
- <h2 style="text-align: center;" markdown="1"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</h2>
-
-______________________________________________________________
-
-# Previous Posts: 
+ 
 ## The minimum work to get started
 >>Not sure how this got started but I was thing about when God made earth, he starte with the minimum, the earth, the man , the animals and systems to guie the man and God said, okay run on autopilot till you fully create the earth. The bible says no one knows what God is doing. But the world has vastly changed and has been changed by man since God left it all thoe many years ago and man has continued to develop it, maninting it for themselves to live and creating all sorts of thing with all sorts of things, orchestras, music, machines, complex knowledge. God created the minimum to get man going and man is creating like God would have created, sometimes individually, othertimes not.
 The first time I use amplified because it is just so beautiful, <p style="text-align: center;">He has also planted eternity [a sense of divine purpose] in the human heart [a mysterious longing which nothing under the sun can satisfy, except God]—yet man cannot find out (comprehend, grasp) what God has done (His overall plan) from the beginning to the end.</p>
@@ -398,7 +400,7 @@ God to Jacob”What’s more, I am with you, and I will protect you wherever you
 > on paper<br>
 
 
-## Jump to most recent post: [Recent Posts    ](https://becauseweliveonearth.github.io/#mercy-vs-judgemen)
+## Jump to most recent post: [Recent Posts    ](https://becauseweliveonearth.com/#we-are-made-incomplete)
 
 <h3 style="text-align: center;"> <ins>All POSTS</ins>  </h3>
 1. [Writer oh Writer](https://becauseweliveonearth.com/#writer-oh-writer) tags: [life](https://becauseweliveonearth.com/#life)
@@ -413,5 +415,6 @@ God to Jacob”What’s more, I am with you, and I will protect you wherever you
 10.[The three Daniels](https://becauseweliveonearth.com/#the-three-daniels))
 11.[The minimum work to get started](https://becauseweliveonearth.com/#the-minimum-work-to-get-started)
 12. [Sons of Zeruiah](https://becauseweliveonearth.com/#sons-of-zeruiah)
+13. [We are made incomplete](https://becauseweliveonearth.com/#we-are-made-incomplete)
 
 
