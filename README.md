@@ -9,7 +9,7 @@
 </script>
 _A collection of writings..._
 
-<button style="text-align: center;" markdown="1">[Latest](https://becauseweliveonearth.com/#we-are-made-incomplete){: .btn .btn-purple }  | [All Posts](https://becauseweliveonearth.github.io/#all-posts){: .btn .btn-purple }</button>
+<h2 style="text-align: center;" markdown="1"><button style="text-align: center;" markdown="1">[Latest](https://becauseweliveonearth.com/#we-are-made-incomplete){: .btn .btn-purple }  | [All Posts](https://becauseweliveonearth.github.io/#all-posts){: .btn .btn-purple }</button></h2>
 
 
 ## We are made incomplete
