@@ -27,24 +27,28 @@ ______________________________________________________________
 
 # Previous Posts: 
 ## Sons of Zeruiah
-<p style="text-align: center;">And even though I am the anointed king, these two sons of Zeruiah—Joab and Abishai—are too strong for me to control. So may the LORD repay these evil men for their evil deeds.”. 2 Samuel 3:39 NLT</p>
->> The Bible states clearly that Zeruiah was David's sister, and her sons, though of the same fighting age as David, were technically David's nephews and his closest men in the army. I like to think his army was a family business - David was the youngest of eight sons, not counting daughters, so this is quite reasonable.
+>> And even though I am the anointed king, these two sons of Zeruiah—Joab and Abishai—are too strong for me to control. So may the LORD repay these evil men for their evil deeds.”. 2 Samuel 3:39 NLT
+
+The Bible states clearly that Zeruiah was David's sister, and her sons, though of the same fighting age as David, were technically David's nephews and his closest men in the army. I like to think his army was a family business - David was the youngest of eight sons, not counting daughters, so this is quite reasonable.
 
 I often wonder what went through Zeruiah's mind during all these events. Three of her sons—Abishai(Gift of God), Joab(Praise Jehovah), and Asahel(God hath made)—fought for David. From the names she gave them, it's evident that she set her heart to raise three strong and godly men. Zeruiah is the unsung hero in this story.
 
->> The impact of mothers on the children they raise cannot be underestimated. I have looked at the stories of the kings of Israel, observing if there was a correlation between the mothers and the ways of their children.
+ The impact of mothers on the children they raise cannot be underestimated. I have looked at the stories of the kings of Israel, observing if there was a correlation between the mothers and the ways of their children.
 
 
-<p style="text-align: center;">Joash was seven years old when he became king, and he reigned in Jerusalem forty years. His mother was Zibiah from Beersheba. 2 Joash did what was pleasing in the Lord’s sight throughout the lifetime of Jehoiada the priest.
+>> Joash was seven years old when he became king, and he reigned in Jerusalem forty years. His mother was Zibiah from Beersheba. 2 Joash did what was pleasing in the Lord’s sight throughout the lifetime of Jehoiada the priest.
     
-Amaziah was twenty-five years old when he became king, and he reigned in Jerusalem twenty-nine years. His mother was Jehoaddin[a] from Jerusalem. 
-Uzziah was sixteen years old when he became king, and he reigned in Jerusalem fifty-two years. His mother was Jecoliah from Jerusalem. 4 He did what was pleasing in the Lord’s sight, just as his father, Amaziah, had done.
+>>Amaziah was twenty-five years old when he became king, and he reigned in Jerusalem twenty-nine years. His mother was Jehoaddin[a] from Jerusalem.
 
-Jotham was twenty-five years old when he became king, and he reigned in Jerusalem sixteen years. His mother was Jerusha, the daughter of Zadok.
-Hezekiah was twenty-five years old when he became the king of Judah, and he reigned in Jerusalem twenty-nine years. His mother was Abijah, the daughter of Zechariah. 2 He did what was pleasing in the Lord’s sight, just as his ancestor David had done.</p>
+>> Uzziah was sixteen years old when he became king, and he reigned in Jerusalem fifty-two years. His mother was Jecoliah from Jerusalem. 4 He did what was pleasing in the Lord’s sight, just as his father, Amaziah, had done.
 
->>While it is not all the kings who their mothers are listed, there is a high correlation between the kings whose mothers are listed and their walk with God for the kingdom of Israel.
-><h2 style="text-align: center;"> A lioness </h2>
+>> Jotham was twenty-five years old when he became king, and he reigned in Jerusalem sixteen years. His mother was Jerusha, the daughter of Zadok.
+
+>>Hezekiah was twenty-five years old when he became the king of Judah, and he reigned in Jerusalem twenty-nine years. His mother was Abijah, the daughter of Zechariah. 2 He did what was pleasing in the Lord’s sight, just as his ancestor David had done.</p>
+
+While it is not all the kings who their mothers are listed, there is a high correlation between the kings whose mothers are listed and their walk with God for the kingdom of Israel.
+
+>> A lioness 
 “What is your mother?
     A lioness among lions!
 She lay down among the young lions
