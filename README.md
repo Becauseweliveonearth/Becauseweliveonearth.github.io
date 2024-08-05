@@ -7,9 +7,9 @@
 
   gtag('config', 'G-CEQ64BW6CD');
 </script>
-_A collection of writings_
+_A collection of writings..._
 
-<h2 style="text-align: center;" markdown="1">[Latest](https://becauseweliveonearth.com/#we-are-made-incomplete){: .btn .btn-purple }  | [All Posts](https://becauseweliveonearth.github.io/#all-posts){: .btn .btn-purple }</h2>
+<button style="text-align: center;" markdown="1">[Latest](https://becauseweliveonearth.com/#we-are-made-incomplete){: .btn .btn-purple }  | [All Posts](https://becauseweliveonearth.github.io/#all-posts){: .btn .btn-purple }</button>
 
 
 ## We are made incomplete
