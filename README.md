@@ -13,12 +13,12 @@
 
 
 ## We are made incomplete
->>    The Bible says we were made in the image of God, so we relate to God on so many levels. God can talk, we can talk, God laughs, God feels, God has joy, patience - all things we can do or have the capacity to produce. But graually we notice that the similarities stop, we don't know all things, we are not omniscient, we are not omnipresent. To the fridge, we must seem like a god, able to  change fates or wills or at least location at a whim. Even when we see ourselves from a different perspective – God’s perspective _“I have said, Ye are gods; and all of you are children of the most High.”_ Psalm 82:6. It echoes, it reverberates.
+The Bible says we were made in the image of God, so we relate to God on so many levels. God can talk, we can talk, God laughs, God feels, God has joy, patience - all things we can do or have the capacity to produce. But graually we notice that the similarities stop, we don't know all things, we are not omniscient, we are not omnipresent. To the fridge, we must seem like a god, able to  change fates or wills or at least location at a whim. Even when we see ourselves from a different perspective – God’s perspective _“I have said, Ye are gods; and all of you are children of the most High.”_ Psalm 82:6. It echoes, it reverberates.
 
 
->>    But one day, we find ourselves in complete tears hands outstretched there's something missing. If God has created us like him, there will be Gods everywhere, but in our adamic form we are gods,  almost like he took something out of himself and called it us. So we can be whole in him, so we can be satisfied in him, so we can be our true forms only by abiding in him. Yet still to be a god is no small feat. A lot can be done which just that that we can forget.  A great feat is what Jesus modeled -to be fully God yet submitted under authority. 
+But one day, we find ourselves in complete tears hands outstretched there's something missing. If God has created us like him, there will be Gods everywhere, but in our adamic form we are gods,  almost like he took something out of himself and called it us. So we can be whole in him, so we can be satisfied in him, so we can be our true forms only by abiding in him. Yet still to be a god is no small feat. A lot can be done which just that that we can forget.  A great feat is what Jesus modeled -to be fully God yet submitted under authority. 
 
-<p style="text-align: center;">Trust in the LORD with all your heart, And lean not on your own understanding; In all your ways acknowledge Him, And He shall direct your paths. Proverbs 3:5-6</p>
+>>   Trust in the LORD with all your heart, And lean not on your own understanding; In all your ways acknowledge Him, And He shall direct your paths. Proverbs 3:5-6
 
 ______________________________________________________________
  <h2 style="text-align: center;" markdown="1"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</h2>
@@ -28,9 +28,12 @@ ______________________________________________________________
 # Previous Posts: 
 ## Sons of Zeruiah
 <p style="text-align: center;">And even though I am the anointed king, these two sons of Zeruiah—Joab and Abishai—are too strong for me to control. So may the LORD repay these evil men for their evil deeds.”. 2 Samuel 3:39 NLT</p>
->>I am not sure how many sons zeruiah had but it was very clear that zeruiah was david sister and his closes men in his army, although the ame fighting age as him were technically his nephews. We know David was the lat of 8 sons not counting daughters, so all of this is reasonable. 
-I often wonder what went into zeruiah mind in all of the happenings, three of her sons were fighting for David, Abishai, Joab and asahel. On another hand from the name she gave them, its obvious she raised three strong men who were godly. Zeruiah is the untold hero in this story.
-The effect of mothers cannot be underestimated on the children they raise. I looked at the stories of the kings of Isreal observing if there was a correlation between the mothers are the ways of the child.
+>> The Bible states clearly that Zeruiah was David's sister, and her sons, though of the same fighting age as David, were technically David's nephews and his closest men in the army. I like to think his army was a family business - David was the youngest of eight sons, not counting daughters, so this is quite reasonable.
+
+I often wonder what went through Zeruiah's mind during all these events. Three of her sons—Abishai(Gift of God), Joab(Praise Jehovah), and Asahel(God hath made)—fought for David. From the names she gave them, it's evident that she set her heart to raise three strong and godly men. Zeruiah is the unsung hero in this story.
+
+>> The impact of mothers on the children they raise cannot be underestimated. I have looked at the stories of the kings of Israel, observing if there was a correlation between the mothers and the ways of their children.
+
 
 <p style="text-align: center;">Joash was seven years old when he became king, and he reigned in Jerusalem forty years. His mother was Zibiah from Beersheba. 2 Joash did what was pleasing in the Lord’s sight throughout the lifetime of Jehoiada the priest.
     
