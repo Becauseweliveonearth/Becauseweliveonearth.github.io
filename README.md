@@ -7,7 +7,7 @@
 
   gtag('config', 'G-CEQ64BW6CD');
 </script>
-
+A collection of writings....
 
 [Latest](https://becauseweliveonearth.com/#we-are-made-incomplete){: .btn .btn-purple }  | [All Posts](https://becauseweliveonearth.github.io/#all-posts){: .btn .btn-purple }
 
