@@ -11,6 +11,8 @@ _A collection of writings..._
 
 <h2 style="text-align: center;" markdown="1"><button style="text-align: center;" markdown="1">[Latest](https://becauseweliveonearth.com/#we-are-made-incomplete){: .btn .btn-purple }  | [All Posts](https://becauseweliveonearth.github.io/#all-posts){: .btn .btn-purple }</button></h2>
 
+<h2 style="text-align: center;" markdown="1"><button style="text-align: right;" markdown="1"> [Subscribe](https://mailchi.mp/62aa1e6258a4/because-we-live-on-earth){: .btn .btn-purple }</button></h2>
+
 
 ## We are made incomplete
 The Bible says we were made in the image of God, so we relate to God on so many levels. God can talk, we can talk, God laughs, God feels, God has joy, patience - all things we can do or have the capacity to produce. Even when we see ourselves from a different perspective – God’s perspective _“I have said, Ye are gods; and all of you are children of the most High.”_ Psalm 82:6. It echoes, it reverberates.
