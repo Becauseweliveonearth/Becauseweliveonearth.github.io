@@ -7,6 +7,8 @@
 
   gtag('config', 'G-CEQ64BW6CD');
 </script>
+
+
 _A collection of writings..._
 
 <h2>
