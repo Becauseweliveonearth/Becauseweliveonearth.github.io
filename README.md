@@ -21,6 +21,27 @@ _A collection of writings..._
 
 
 
+## Chosen
+From our perspective, we are grown, christians, we have chosen to serve God, dedicate our live to him. From God's perspective He created us and chose to include us in something he was planning. What is this?
+
+_“But you are a chosen generation, a royal priesthood, a holy nation, His own special people, that you may proclaim the praises of Him who called you out of darkness into His marvelous light;”_
+
+God called us into his family, we are chosen by God and we accept it, we accept somethng that was given - God gave it first.  We become God's people - people chosen to multiply God. To show forth the works of him who called us. It is not enough to have God behind us and then we are pursuing worthless things (at least compared to God). Like the children of Israel using the abundance God gave them  in hopes of certainty from a calf. We have to be like God, like Jesus. To become defined by God, God is my description - we then as the body of Christ in groups become a holy nation. To be chosen....
+
+>>   You did not choose Me, but I chose you and appointed you that you should go and bear fruit, and that your fruit should remain, that whatever you ask the Father in My name He may give you. John 15:16
+
+______________________________________________________________
+
+______________________________________________________________
+
+# Previous Posts: 
+<h3 style="text-align: center;"> <ins>All POSTS</ins>  </h3>
+[We are made incomplete](https://becauseweliveonearth.com/#we-are-made-incomplete)
+[Sons of Zeruiah](https://becauseweliveonearth.com/#sons-of-zeruiah)
+
+
+
+
 ## We are made incomplete
 The Bible says we were made in the image of God, so we relate to God on so many levels. God can talk, we can talk, God laughs, God feels, God has joy, patience - all things we can do or have the capacity to produce. Even when we see ourselves from a different perspective – God’s perspective _“I have said, Ye are gods; and all of you are children of the most High.”_ Psalm 82:6. It echoes, it reverberates.
 But gradually we notice that the similarities stop - we don't know all things, we are not omniscient, we are not omnipresent. To the fridge, we must seem like a god, able to  change fates or wills or at least location at a whim. 
@@ -29,12 +50,6 @@ But one day, we find ourselves in complete tears hands outstretched there's some
 
 >>   Trust in the LORD with all your heart, And lean not on your own understanding; In all your ways acknowledge Him, And He shall direct your paths. Proverbs 3:5-6
 
-______________________________________________________________
- <h2 style="text-align: center;" markdown="1"> Jump to list of all posts: [All Posts    ](https://becauseweliveonearth.github.io/#all-posts)</h2>
-
-______________________________________________________________
-
-# Previous Posts: 
 ## Sons of Zeruiah
 >> And even though I am the anointed king, these two sons of Zeruiah—Joab and Abishai—are too strong for me to control. So may the LORD repay these evil men for their evil deeds.”. 2 Samuel 3:39 NLT
 
