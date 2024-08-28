@@ -23,28 +23,43 @@ _A collection of writings..._
 
 ## Chosen
 From our perspective, we are grown 
+
 christians
-we have chosen to serve God, dedicate our live to him. 
+
+we have chosen to serve God, dedicate our live to him.
+
 From God's perspective He created us and chose to include us in something he was planning. 
+
 What is this?
 
 _“But you are a chosen generation, a royal priesthood, a holy nation, His own special people, that you may proclaim the praises of Him who called you out of darkness into His marvelous light;”_
 
 God called us into his family
+
 we are chosen by God and we accept it
+
 we accept somethng that was given 
+
 God gave it first.  
+
 We become God's people 
+
 people chosen to multiply God. 
+
 To show forth the works of him who called us. 
 
 It is not enough to have God behind us and then we are pursuing worthless things (at least compared to God). Like the children of Israel using the abundance God gave them  in hopes of certainty from a calf. 
 
 We have to be like God, 
+
 like Jesus. 
+
 To become defined by God
+
 God is my description 
+
 We then as the body of Christ in groups become a holy nation. 
+
 To be chosen....
 
 >>   You did not choose Me, but I chose you and appointed you that you should go and bear fruit, and that your fruit should remain, that whatever you ask the Father in My name He may give you. John 15:16
