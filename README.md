@@ -59,7 +59,7 @@ So what is the backdoor to not having to obey this law?
 
 _We are made right with God by placing our faith in Jesus Christ. And this is true for everyone who believes, no matter who we are. Romans3:22_
 
-
+Now when we read the Bible, instead of taking away rules and regulations, we try to understand the heart of God. Why did God do this? Why that? We cry out in sonship towards understanding our Abba! Father. So that we too can be like him. We all study successful people and try to copy their habits, routines, etc. It's the same thing with God; by studying the word of God, we can learn about the character of God, his son Jesus, as he was modeled in flesh and empowered by the spirit of God, we begin to embody the behavior of our father.
 
 Okay??? Are you sure?
 
@@ -68,11 +68,7 @@ YES!! Even the priesthood was changed, so the law that that priesthood was based
 _And if the priesthood is changed, the law must also be changed to permit it. Hebrew 7:12_
 
 
-
-Now when we read the Bible, instead of taking away rules and regulations, we try to understand the heart of God. Why did God do this? Why that? We cry out in sonship towards understanding our Abba! Father. So that we too can be like him. We all study successful people and try to copy their habits, routines, etc. It's the same thing with God; by studying the word of God, we can learn about the character of God, his son Jesus, as he was modeled in flesh and empowered by the spirit of God, we begin to embody the behavior of our father.
-
-
-How this sounds harder than obeying a bunch of rules?
+How does this sounds harder than obeying a bunch of rules?
 
 The law always told you what you did wrong. The law doesn't offer tips and tricks to not do it again; you have to be the one running around thinking of how not to sin again. You have to muster self-will; the law offers nothing but harsh conditions. 
 
