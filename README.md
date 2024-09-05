@@ -19,12 +19,6 @@ _A collection of writings..._
 </h2>
 
 
-## Elyon
-So God's people, imagine this earh hangs on God instead of nothing or gravity whichever your understanidng accomodates now. 
-
-It is how we are, everything flows from God, our lifes perspetive shouln't flow from ourselves too but from God. And only then do we find what we are looking to, whatever it is. You can't eat desert before dinner, let's ome to dinner hungry, and let God fill us, hoping to be full.
-
->>But you have come to Mount Zion and to the city of the living God, the heavenly Jerusalem, to an innumerable company of angels, to the [j]general assembly and church of the firstborn who are registered in heaven, to God the Judge of all, to the spirits of just men made perfect,  to Jesus the Mediator of the new covenant, and to the blood of sprinkling that speaks better things than that of Abel. Heb 12:22-24
 
 ______________________________________________________________
 
@@ -42,6 +36,24 @@ ______________________________________________________________
 8. [Chosen](https://becauseweliveonearth.com/#chosen)
 9. [Sons of Zeruiah](https://becauseweliveonearth.com/#sons-of-zeruiah)
 10. [We are made incomplete](https://becauseweliveonearth.com/#we-are-made-incomplete)
+
+## Strength to live
+1. There is a certain 
+
+## Fighting Styles
+I once read about a chinese fighting style where when fighting you move with the opponent (i.e. whatever direction the opponent was moving). I laughed - how is that fighting? Shouldn't you be contrary to your opponent? 
+
+But in hindsight, if you ever sight opposition, sometimes hitting back is not ideal - flow in the same direction until you find a gap, a ladder, a gradient. Often times as a leader abrupt change is too abrupt.
+
+Especially in Kingdom context, when you don't want to hurt your opponents. You should be fighting principalities and powers not your brother and sister. Flow in thier direction for now.
+
+## Elyon
+So God's people, imagine this earh hangs on God instead of nothing or gravity whichever your understanidng accomodates now. 
+
+It is how we are, everything flows from God, our lifes perspetive shouln't flow from ourselves too but from God. And only then do we find what we are looking to, whatever it is. You can't eat desert before dinner, let's ome to dinner hungry, and let God fill us, hoping to be full.
+
+>>But you have come to Mount Zion and to the city of the living God, the heavenly Jerusalem, to an innumerable company of angels, to the [j]general assembly and church of the firstborn who are registered in heaven, to God the Judge of all, to the spirits of just men made perfect,  to Jesus the Mediator of the new covenant, and to the blood of sprinkling that speaks better things than that of Abel. Heb 12:22-24
+
 
 
 ## Lunatic
