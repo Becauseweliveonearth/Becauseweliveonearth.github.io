@@ -46,10 +46,13 @@ ______________________________________________________________
 
 # Previous Posts: 
 <h3 style="text-align: center;"> <ins>All POSTS</ins>  </h3>
-[We are made incomplete](https://becauseweliveonearth.com/#we-are-made-incomplete)
-[Sons of Zeruiah](https://becauseweliveonearth.com/#sons-of-zeruiah)
-[Chosen](https://becauseweliveonearth.com/#chosen)
-[Rene
+1. [Renegade](https://becauseweliveonearth.com/#renegade)
+2. [Chosen](https://becauseweliveonearth.com/#chosen)
+3. [Sons of Zeruiah](https://becauseweliveonearth.com/#sons-of-zeruiah)
+4. [We are made incomplete](https://becauseweliveonearth.com/#we-are-made-incomplete)
+
+
+
 
 
 ## Chosen
@@ -491,7 +494,7 @@ God to Jacob”What’s more, I am with you, and I will protect you wherever you
 
 <h3 style="text-align: center;"> <ins>All POSTS</ins>  </h3>
 1. [Writer oh Writer](https://becauseweliveonearth.com/#writer-oh-writer) tags: [life](https://becauseweliveonearth.com/#life)
-2. =[Mercy vs Judgement](https://becauseweliveonearth.com/#mercy-vs-judgement) tags: [life](https://becauseweliveonearth.com/#life)
+2. [Mercy vs Judgement](https://becauseweliveonearth.com/#mercy-vs-judgement) tags: [life](https://becauseweliveonearth.com/#life)
 3. [The one who leaves vs The one who stays ](https://becauseweliveonearth.com/#the-one-who-leaves-vs-the-one-who-stays)
 4. [Cream Cheese and working for it](https://becauseweliveonearth.com/#cream-cheese-and-working-for-it)
 5. [Peace is alignment](https://becauseweliveonearth.com/#peace-is-alignment)
