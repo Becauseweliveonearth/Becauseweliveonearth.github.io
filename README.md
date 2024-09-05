@@ -25,7 +25,7 @@ Apparently there is a way to not obey the laws of God in the bible. It's going t
 
 _But now the righteousness of God apart from the law is revealed, being witnessed by the Law and the Prophets, Romans 3:21_
 
-What is the law in this case? The law is a specific moral standard on how to live, what to eat etc. If you had issues making decisions, the law provided the best practices for aligning with God.  So what is the back door on not having to obey this law?
+What is the law in this case? The law is a specific moral standard on how to live, what to eat etc. If you had issues making decisions, the law provided the best practices for aligning with God and placating that gnawing feeling of being far from God.  So what is the back door on not having to obey this law?
 
 _We are made right with God by placing our faith in Jesus Christ. And this is true for everyone who believes, no matter who we are. Romans3:22_
 
