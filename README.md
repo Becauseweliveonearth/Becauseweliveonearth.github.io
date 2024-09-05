@@ -73,9 +73,11 @@ Now when we read the Bible, instead of taking away rules and regulations, we try
 
 
 How this sounds harder than obeying a bunch of rules?
+
 The law always told you what you did wrong. The law doesn't offer tips and tricks to not do it again; you have to be the one running around thinking of how not to sin again. You have to muster self-will; the law offers nothing but harsh conditions. 
 
 _For the law always brings punishment on those who try to obey it. (The only way to avoid breaking the law is to have no law to break!)Romans 4:15(NLT)_
+
 _Don’t misunderstand why I have come. I did not come to abolish the law of Moses or the writings of the prophets. No, I came to accomplish their purpose. 18 I tell you the truth: until heaven and earth disappear, not even the smallest detail of God’s law will disappear until its purpose is achieved. Mathew 5:17-18_
 
 
@@ -91,9 +93,15 @@ _Since we know that Christ is righteous, we also know that all who do what is ri
 
 _But you are not like that, for the Holy One has given you his Spirit, and all of you know the truth. 1 John 3:20_
 
-So simply by allowing God to work in us to do right things for others to observe in us. Whew! Heavy, The apostles wrote heavily against false doctrine, for love as the first sign of rightness being produced and the importance of community. That's it, no laws!! It puts into perspective when Apostle Paul says to follow him as he follows Christ. Jesus being the way is clear now. If there is no law, the only thing we know to say and speak is Jesus, Jesus, Jesus.
+So simply by allowing God to work in us to do right things for others to observe in us. Whew!
+
+The apostles wrote heavily against false doctrine, for love as the first sign of rightness being produced and the importance of community. That's it, no laws!! 
+
+It puts into perspective when Apostle Paul says to follow him as he follows Christ. Jesus being the way is clear now. If there is no law, the only thing we know to say and speak is Jesus, Jesus, Jesus.
 
 Should we fall back on the safe laws, like the ten commandments, etc. I believe the laws are great as guardians/training wheels, i.e., to be taught to children, etc. They are great guardrails. But a time must come when a Christian must not be in a crib anymore but learn in safety and gradually to follow the shepherd's voice so they do not walk out the balcony but safely arrive at their destination; all of this in being like their father.
+
+_Ye are gods and children of the most high_
 
 _But you are not like that, for the Holy One has given you his Spirit, and all of you know the truth._
 
