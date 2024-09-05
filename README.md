@@ -20,6 +20,55 @@ _A collection of writings..._
 
 
 
+## Chaos
+But we still have to live in this world. We re God's people on earth, not in heaven. What ensues is Chaos.
+_Light shines in darkness and the darkness annot comprehend it._  
+
+What happens when the darkness is so great and individual lights are simply shining around, or some simply corner  light for their family or soiety etc. - Chaos is what happens.
+
+Or some simply re ontent gripping onto the hands of others, never knowing the darkness or minding it. 
+
+Choose my dear friend.
+
+But above all this how does the gospel apply to our daily life.
+
+
+>> In the beginning God created the heavens and the earth.
+>> 
+>> The earth was formless and empty, and darkness covered the deep waters.
+>> 
+>> And the Spirit of God was hovering over the surface of the waters.
+>> 
+>>  Then God said, “Let there be light,” and there was light
+
+______________________________________________________________
+
+______________________________________________________________
+
+# Previous Posts: 
+<h3 style="text-align: center;"> <ins>All POSTS</ins></h3>
+1. [Infidel](https://becauseweliveonearth.com/#infidel)
+2. [Renegade](https://becauseweliveonearth.com/#renegade)
+3. [Chosen](https://becauseweliveonearth.com/#chosen)
+4. [Sons of Zeruiah](https://becauseweliveonearth.com/#sons-of-zeruiah)
+5. [We are made incomplete](https://becauseweliveonearth.com/#we-are-made-incomplete)
+
+
+## Infidel
+Sometimes we look over to our family and friends, the heartwarming traditions we grew up in, how can all of this be wrong? 
+
+_“Do not think that I came to bring peace on earth. I did not come to bring peace but a sword. For I have come to ‘set[a] a man against his father, a daughter against her mother, and a daughter-in-law against her mother-in-law’; and ‘a man’s enemies will be those of his own household.”_
+
+To not be like the world
+
+Each of us live in bubbles and sometimes we can't really see all that God sees.
+
+
+
+>> Blotting out the handwriting of ordinances that was against us, which was contrary to us, and took it out of the way, nailing it to his cross; Col 2:14
+
+
+
 ## Renegade
 To become defined by Godness
 
@@ -40,27 +89,13 @@ God - alive and living
 >> 
 >>  I have said, Ye are gods; and all of you are children of the most High. Psalm 82:6
 
-______________________________________________________________
-
-______________________________________________________________
-
-# Previous Posts: 
-<h3 style="text-align: center;"> <ins>All POSTS</ins>  </h3>
-1. [Renegade](https://becauseweliveonearth.com/#renegade)
-2. [Chosen](https://becauseweliveonearth.com/#chosen)
-3. [Sons of Zeruiah](https://becauseweliveonearth.com/#sons-of-zeruiah)
-4. [We are made incomplete](https://becauseweliveonearth.com/#we-are-made-incomplete)
-
-
-
-
 
 ## Chosen
 From our perspective, we are grown 
 
-christians
+Christians
 
-we have chosen to serve God, dedicate our live to him.
+We have chosen to serve God, dedicate our live to him.
 
 From God's perspective He created us and chose to include us in something he was planning. 
 
@@ -70,15 +105,15 @@ _“But you are a chosen generation, a royal priesthood, a holy nation, His own 
 
 God called us into his family
 
-we are chosen by God and we accept it
+We are chosen by God and we accept it
 
-we accept somethng that was given 
+We accept something that was given 
 
 God gave it first.  
 
 We become God's people 
 
-people chosen to multiply God. 
+People chosen to multiply God. 
 
 To show forth the works of him who called us. 
 
@@ -86,7 +121,7 @@ It is not enough to have God behind us and then we are pursuing worthless things
 
 We have to be like God, 
 
-like Jesus. 
+Like Jesus. 
 
 To become defined by God
 
