@@ -38,7 +38,10 @@ ______________________________________________________________
 10. [We are made incomplete](https://becauseweliveonearth.com/#we-are-made-incomplete)
 
 ## Strength to live
-1. There is a certain 
+1. There is a certain autopilot life can be on that might seem good where even going on vacation is on autopilot. Having a great work/school/life routine.
+2. Yet we need strength to live life on God's terms not blown by the winds of our flesh, the winds of society and the winds of culture.
+3. Autopilot is good, planes fly on autopilot. But there needs to be a pilot - the pilot shoul be alive and able to respond when needed. If truly the spirirt of God lives in us, we have signs of life and should respond to the God-life around us
+4. Een when we respond, we still need grace. A different wind of mechanism, sometimes I wonder what we humans do - stop wrestling, start responding to the spirirt of God.
 
 ## Fighting Styles
 I once read about a chinese fighting style where when fighting you move with the opponent (i.e. whatever direction the opponent was moving). I laughed - how is that fighting? Shouldn't you be contrary to your opponent? 
