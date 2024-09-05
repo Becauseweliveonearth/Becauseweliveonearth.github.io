@@ -32,13 +32,17 @@ ______________________________________________________________
 
 # Previous Posts: 
 <h3 style="text-align: center;"> <ins>All POSTS</ins></h3>
-1. [Elyon](https://becauseweliveonearth.com/#Elyon)
-2. [Lunatic](https://becauseweliveonearth.com/#lunatic)
-3. [Infidel](https://becauseweliveonearth.com/#infidel)
-4. [Renegade](https://becauseweliveonearth.com/#renegade)
-5. [Chosen](https://becauseweliveonearth.com/#chosen)
-6.[Sons of Zeruiah](https://becauseweliveonearth.com/#sons-of-zeruiah)
-7.[We are made incomplete](https://becauseweliveonearth.com/#we-are-made-incomplete)
+1. 
+2. 
+3. [Fighting Styles](https://becauseweliveonearth.com/#fighting-styles)
+4. [Elyon](https://becauseweliveonearth.com/#Elyon)
+5. [Lunatic](https://becauseweliveonearth.com/#lunatic)
+6. [Infidel](https://becauseweliveonearth.com/#infidel)
+7. [Renegade](https://becauseweliveonearth.com/#renegade)
+8. [Chosen](https://becauseweliveonearth.com/#chosen)
+9. [Sons of Zeruiah](https://becauseweliveonearth.com/#sons-of-zeruiah)
+10. [We are made incomplete](https://becauseweliveonearth.com/#we-are-made-incomplete)
+
 
 ## Lunatic
 We live the life on earth from a different perspective. We break social norms if need be, if not, then as is. We despie the shame and look to the Joy set before Christ.
@@ -148,13 +152,6 @@ To be chosen....
 >>   You did not choose Me, but I chose you and appointed you that you should go and bear fruit, and that your fruit should remain, that whatever you ask the Father in My name He may give you. John 15:16
 
 
-## We are made incomplete
-The Bible says we were made in the image of God, so we relate to God on so many levels. God can talk, we can talk, God laughs, God feels, God has joy, patience - all things we can do or have the capacity to produce. Even when we see ourselves from a different perspective – God’s perspective _“I have said, Ye are gods; and all of you are children of the most High.”_ Psalm 82:6. It echoes, it reverberates.
-But gradually we notice that the similarities stop - we don't know all things, we are not omniscient, we are not omnipresent. To the fridge, we must seem like a god, able to  change fates or wills or at least location at a whim. 
-
-But one day, we find ourselves in complete tears hands outstretched there's something missing. If God has created us like him, there will be Gods everywhere, but in our adamic form we are gods,  almost like he took something out of himself and called it us. So we can be whole in him, so we can be satisfied in him, so we can be our true form only by abiding in him. Yet still to be a god is no small feat. A lot can be done with just that and sometimes we can forget.  A great feat is what Jesus modeled -to be fully God yet submitted under authority. 
-
->>   Trust in the LORD with all your heart, And lean not on your own understanding; In all your ways acknowledge Him, And He shall direct your paths. Proverbs 3:5-6
 
 ## Sons of Zeruiah
 >> And even though I am the anointed king, these two sons of Zeruiah—Joab and Abishai—are too strong for me to control. So may the LORD repay these evil men for their evil deeds.”. 2 Samuel 3:39 NLT
@@ -199,6 +196,17 @@ Their farms were desolated,
     and their crops were destroyed.
 The land and its people trembled in fear
     when they heard him roar.
+
+## We are made incomplete
+The Bible says we were made in the image of God, so we relate to God on so many levels. God can talk, we can talk, God laughs, God feels, God has joy, patience - all things we can do or have the capacity to produce. Even when we see ourselves from a different perspective – God’s perspective _“I have said, Ye are gods; and all of you are children of the most High.”_ Psalm 82:6. It echoes, it reverberates.
+But gradually we notice that the similarities stop - we don't know all things, we are not omniscient, we are not omnipresent. To the fridge, we must seem like a god, able to  change fates or wills or at least location at a whim. 
+
+But one day, we find ourselves in complete tears hands outstretched there's something missing. If God has created us like him, there will be Gods everywhere, but in our adamic form we are gods,  almost like he took something out of himself and called it us. So we can be whole in him, so we can be satisfied in him, so we can be our true form only by abiding in him. Yet still to be a god is no small feat. A lot can be done with just that and sometimes we can forget.  A great feat is what Jesus modeled -to be fully God yet submitted under authority. 
+
+>>   Trust in the LORD with all your heart, And lean not on your own understanding; In all your ways acknowledge Him, And He shall direct your paths. Proverbs 3:5-6
+
+
+# ARCHIVES:
  
 ## The minimum work to get started
 >>Not sure how this got started but I was thing about when God made earth, he starte with the minimum, the earth, the man , the animals and systems to guie the man and God said, okay run on autopilot till you fully create the earth. The bible says no one knows what God is doing. But the world has vastly changed and has been changed by man since God left it all thoe many years ago and man has continued to develop it, maninting it for themselves to live and creating all sorts of thing with all sorts of things, orchestras, music, machines, complex knowledge. God created the minimum to get man going and man is creating like God would have created, sometimes individually, othertimes not.
