@@ -19,10 +19,36 @@ _A collection of writings..._
 </h2>
 
 
+## Elyon
+So God's people, imagine this earh hangs on God instead of nothing or gravity whichever your understanidng accomodates now. 
+
+It is how we are, everything flows from God, our lifes perspetive shouln't flow from ourselves too but from God. And only then do we find what we are looking to, whatever it is. You can't eat desert before dinner, let's ome to dinner hungry, and let God fill us, hoping to be full.
+
+>>But you have come to Mount Zion and to the city of the living God, the heavenly Jerusalem, to an innumerable company of angels, to the [j]general assembly and church of the firstborn who are registered in heaven, to God the Judge of all, to the spirits of just men made perfect,  to Jesus the Mediator of the new covenant, and to the blood of sprinkling that speaks better things than that of Abel. Heb 12:22-24
+
+______________________________________________________________
+
+______________________________________________________________
+
+# Previous Posts: 
+<h3 style="text-align: center;"> <ins>All POSTS</ins></h3>
+1. [Elyon](https://becauseweliveonearth.com/#Elyon)
+2. [Lunatic](https://becauseweliveonearth.com/#lunatic)
+3. [Infidel](https://becauseweliveonearth.com/#infidel)
+4. [Renegade](https://becauseweliveonearth.com/#renegade)
+5. [Chosen](https://becauseweliveonearth.com/#chosen)
+6.[Sons of Zeruiah](https://becauseweliveonearth.com/#sons-of-zeruiah)
+7.[We are made incomplete](https://becauseweliveonearth.com/#we-are-made-incomplete)
+
+## Lunatic
+We live the life on earth from a different perspective. We break social norms if need be, if not, then as is. We despie the shame and look to the Joy set before Christ.
+
+>>looking unto Jesus, the author and finisher of our faith, who for the joy that was set before Him endured the cross, despising the shame, and has sat down at the right hand of the throne of God. Heb 12:2
 
 ## Chaos
 But we still have to live in this world. We re God's people on earth, not in heaven. What ensues is Chaos.
-_Light shines in darkness and the darkness annot comprehend it._  
+
+_Light shines in darkness and the darkness cannot comprehend it._  
 
 What happens when the darkness is so great and individual lights are simply shining around, or some simply corner  light for their family or soiety etc. - Chaos is what happens.
 
@@ -40,18 +66,6 @@ But above all this how does the gospel apply to our daily life.
 >> And the Spirit of God was hovering over the surface of the waters.
 >> 
 >>  Then God said, “Let there be light,” and there was light
-
-______________________________________________________________
-
-______________________________________________________________
-
-# Previous Posts: 
-<h3 style="text-align: center;"> <ins>All POSTS</ins></h3>
-1. [Infidel](https://becauseweliveonearth.com/#infidel)
-2. [Renegade](https://becauseweliveonearth.com/#renegade)
-3. [Chosen](https://becauseweliveonearth.com/#chosen)
-4. [Sons of Zeruiah](https://becauseweliveonearth.com/#sons-of-zeruiah)
-5. [We are made incomplete](https://becauseweliveonearth.com/#we-are-made-incomplete)
 
 
 ## Infidel
