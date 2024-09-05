@@ -47,7 +47,9 @@ _“But,” some might say, “our sinfulness serves a good purpose, for it help
 
 
 So now that there is no law, how do we know what to do? What is right and wrong?
+
 The good news is that you are dealing directly with God now, as modeled by David. 
+
 _“I’m in a desperate situation!” David replied to Gad. “But let us fall into the hands of the Lord, for his mercy is great. Do not let me fall into human hands.” 2 Sam 24:14_
 
 _For all who are led by the Spirit of God are children of God. Romans 8:14_
@@ -67,7 +69,7 @@ _And if the priesthood is changed, the law must also be changed to permit it. He
 
 
 
-We read the Bible, and instead of taking away rules and regulations, we try to understand the heart of God. Why did God do this? Why that? We cry out in sonship towards understanding our Abba! Father. So that we too can be like him. We all study successful people and try to copy their habits, routines, etc. It's the same thing with God; by studying the word of God, we can learn about the character of God, his son Jesus, as he was modeled in flesh and empowered by the spirit of God to embody the behavior of our father.
+Now when we read the Bible, instead of taking away rules and regulations, we try to understand the heart of God. Why did God do this? Why that? We cry out in sonship towards understanding our Abba! Father. So that we too can be like him. We all study successful people and try to copy their habits, routines, etc. It's the same thing with God; by studying the word of God, we can learn about the character of God, his son Jesus, as he was modeled in flesh and empowered by the spirit of God, we begin to embody the behavior of our father.
 
 
 How this sounds harder than obeying a bunch of rules?
