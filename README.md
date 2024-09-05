@@ -32,8 +32,8 @@ ______________________________________________________________
 
 # Previous Posts: 
 <h3 style="text-align: center;"> <ins>All POSTS</ins></h3>
-1. 
-2. 
+1. [The Back Door in Christianity](https://becauseweliveonearth.com/#the-back-door-in-christianity)
+2. [Strength to live](https://becauseweliveonearth.com/#strength-to-live)
 3. [Fighting Styles](https://becauseweliveonearth.com/#fighting-styles)
 4. [Elyon](https://becauseweliveonearth.com/#Elyon)
 5. [Lunatic](https://becauseweliveonearth.com/#lunatic)
