@@ -33,8 +33,11 @@ God - alive and living
 
 
 >> God standeth in the congregation of the mighty; he judgeth among the gods.
+>> 
 >> How long will ye judge unjustly, and accept the persons of the wicked? Selah.
+>> 
 >> They know not, neither will they understand; they walk on in darkness: all the foundations of the earth are out of course.
+>> 
 >>  I have said, Ye are gods; and all of you are children of the most High. Psalm 82:6
 
 ______________________________________________________________
