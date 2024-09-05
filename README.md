@@ -25,34 +25,46 @@ Apparently there is a way to not obey the laws of God in the bible. It's going t
 
 _But now the righteousness of God apart from the law is revealed, being witnessed by the Law and the Prophets, Romans 3:21_
 
-What is the law in this case? The law is a specific moral standard on how to live, what to eat etc. If you had issues making decisions, the law provided the best practices for aligning with God and placating that gnawing feeling of being far from God.  So what is the back door on not having to obey this law?
+What is the law in this case? The law is a specific moral standard on how to live, what to eat etc. If you had issues making decisions, the law provided the best practices for aligning with God and placating that gnawing feeling of being far from God.  
 
-_We are made right with God by placing our faith in Jesus Christ. And this is true for everyone who believes, no matter who we are. Romans3:22_
-
-Okay??? Are you sure?
-
-_“But,” some might say, “our sinfulness serves a good purpose, for it helps people see how righteous God is. Isn’t it unfair, then, for him to punish us?” (This is merely a human point of view.) Romans3:5_
-
-
-Yes the bible says God doesn't count the sins anymore.
+And yes a way in the bible where God doesn't count the sins anymore.
 
 _Blessed is he whose transgression is forgiven,
 Whose sin is covered.
-2 Blessed is the man to whom the Lord does not [b]impute iniquity,
+2 Blessed is the man to whom the Lord does not impute iniquity,
 And in whose spirit there is no deceit.Psalm 32:1-2_
 
-Okay why was the law given?
+
+First why was the law given if a back door is gong to exist?
+_“But,” some might say, “our sinfulness serves a good purpose, for it helps people see how righteous God is. Isn’t it unfair, then, for him to punish us?” (This is merely a human point of view.) Romans3:5_
+
 _Let me put it another way. The law was our guardian until Christ came; it protected us until we could be made right with God through faith. 25 And now that the way of faith has come, we no longer need the law as our guardian.Galatians 3:24_
+
 _But the Scriptures declare that we are all prisoners of sin, so we receive God’s promise of freedom only by believing in Jesus Christ.Galatians 3:22_
+
 _Why, then, was the law given? It was given alongside the promise to show people their sins. But the law was designed to last only until the coming of the child who was promised. God gave his law through angels to Moses, who was the mediator between God and the people. Galatians 3:19_
 
-But even the priesthood was changed, so the law that that priesthood was based on has to be changed.
-_And if the priesthood is changed, the law must also be changed to permit it.Hebrew 7:12_
 
-So nw that there is no law, how do we know what to do? What is right and wrong?
+So now that there is no law, how do we know what to do? What is right and wrong?
 Good news is that you are dealing directly with God now as modelled by David. 
 _“I’m in a desperate situation!” David replied to Gad. “But let us fall into the hands of the Lord, for his mercy is great. Do not let me fall into human hands.” 2 Sam 24:14_
+
 _For all who are led by the Spirit of God are children of God.Romans 8:14_
+
+
+So what is the back door on not having to obey this law?
+
+_We are made right with God by placing our faith in Jesus Christ. And this is true for everyone who believes, no matter who we are. Romans3:22_
+
+
+
+Okay??? Are you sure?
+
+
+YES!! Even the priesthood was changed, so the law that that priesthood was based on has to be changed.
+_And if the priesthood is changed, the law must also be changed to permit it.Hebrew 7:12_
+
+
 
 We read the bible and instead of taking away rules and regulations, we try to understand the heart of God. Why did God do this? Why that? We cry out in sonship towards understanding oour Abba! Father. So that we too can be like him. We all study succeussful people and try to compy thier habits, routine etc. It's the same thing with God, by studying the word of God, we can learn about the character of God, his son Jesus as he modeled in flesh and empowered by the spirit of God emobody the behavious of our father.
 
