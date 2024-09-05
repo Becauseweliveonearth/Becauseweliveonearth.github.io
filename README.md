@@ -23,23 +23,64 @@ _A collection of writings..._
 
 Apparently there is a way to not obey the laws of God in the bible. It's going to need a lot of scriptures to justify so let's dive in.
 
-_We are made right with God by placing our faith in Jesus Christ. And this is true for everyone who believes, no matter who we are. Romans3:22_
-_“But,” some might say, “our sinfulness serves a good purpose, for it helps people see how righteous God is. Isn’t it unfair, then, for him to punish us?” (This is merely a human point of view.) Romans3:5_
 _But now the righteousness of God apart from the law is revealed, being witnessed by the Law and the Prophets, Romans 3:21_
+
+What is the law in this case? The law is a specific moral standard on how to live, what to eat etc. If you had issues making decisions, the law provided the best practices for aligning with God.  So what is the back door on not having to obey this law?
+
+_We are made right with God by placing our faith in Jesus Christ. And this is true for everyone who believes, no matter who we are. Romans3:22_
+
+Okay??? Are you sure?
+
+_“But,” some might say, “our sinfulness serves a good purpose, for it helps people see how righteous God is. Isn’t it unfair, then, for him to punish us?” (This is merely a human point of view.) Romans3:5_
+
+
+Yes the bible says God doesn't count the sins anymore.
+
 _Blessed is he whose transgression is forgiven,
 Whose sin is covered.
 2 Blessed is the man to whom the Lord does not [b]impute iniquity,
 And in whose spirit there is no deceit.Psalm 32:1-2_
-_For the law always brings punishment on those who try to obey it. (The only way to avoid breaking the law is to have no law to break!)Romans 4:15(NLT)_
-_Don’t misunderstand why I have come. I did not come to abolish the law of Moses or the writings of the prophets. No, I came to accomplish their purpose. 18 I tell you the truth, until heaven and earth disappear, not even the smallest detail of God’s law will disappear until its purpose is achieved.Mathew 5:17-18_
-_“I’m in a desperate situation!” David replied to Gad. “But let us fall into the hands of the Lord, for his mercy is great. Do not let me fall into human hands.” 2 Sam 24:14_
-_For all who are led by the Spirit of God are children of God.Romans 8:14_
-_For the law of the Spirit of life in Christ Jesus has made me free from the law of sin and death. 3 For what the law could not do in that it was weak through the flesh, God did by sending His own Son in the likeness of sinful flesh, on account of sin: He condemned sin in the flesh, 4 that the righteous requirement of the law might be fulfilled in us who do not walk according to the flesh but according to the Spirit. Romans 8:2-4_
+
+Okay why was the law given?
 _Let me put it another way. The law was our guardian until Christ came; it protected us until we could be made right with God through faith. 25 And now that the way of faith has come, we no longer need the law as our guardian.Galatians 3:24_
 _But the Scriptures declare that we are all prisoners of sin, so we receive God’s promise of freedom only by believing in Jesus Christ.Galatians 3:22_
 _Why, then, was the law given? It was given alongside the promise to show people their sins. But the law was designed to last only until the coming of the child who was promised. God gave his law through angels to Moses, who was the mediator between God and the people. Galatians 3:19_
 
+But even the priesthood was changed, so the law that that priesthood was based on has to be changed.
+_And if the priesthood is changed, the law must also be changed to permit it.Hebrew 7:12_
 
+So nw that there is no law, how do we know what to do? What is right and wrong?
+Good news is that you are dealing directly with God now as modelled by David. 
+_“I’m in a desperate situation!” David replied to Gad. “But let us fall into the hands of the Lord, for his mercy is great. Do not let me fall into human hands.” 2 Sam 24:14_
+_For all who are led by the Spirit of God are children of God.Romans 8:14_
+
+We read the bible and instead of taking away rules and regulations, we try to understand the heart of God. Why did God do this? Why that? We cry out in sonship towards understanding oour Abba! Father. So that we too can be like him. We all study succeussful people and try to compy thier habits, routine etc. It's the same thing with God, by studying the word of God, we can learn about the character of God, his son Jesus as he modeled in flesh and empowered by the spirit of God emobody the behavious of our father.
+
+
+How this sounds harder than obeying a bunch of rules?
+The law always told you what you did wrong. The law doesn't offer tips and tricks to not do it again, you have to be the one ruunning around thinking of how not to sin again. You have to muster self-will, the law offers nothing but harsh condmenation. 
+
+_For the law always brings punishment on those who try to obey it. (The only way to avoid breaking the law is to have no law to break!)Romans 4:15(NLT)_
+_Don’t misunderstand why I have come. I did not come to abolish the law of Moses or the writings of the prophets. No, I came to accomplish their purpose. 18 I tell you the truth, until heaven and earth disappear, not even the smallest detail of God’s law will disappear until its purpose is achieved.Mathew 5:17-18_
+
+
+Yet Jesus sets us free from the law of sin and death. So when we walk acoording to the spirit of God, its like an optimized system that already acounts for fufiling the requirments of the law. Amazing! Jesus was the only one with moral superiority that was able to condemn sin in the flesh. Hallelujah!!
+
+_For the law of the Spirit of life in Christ Jesus has made me free from the law of sin and death. 3 For what the law could not do in that it was weak through the flesh, God did by sending His own Son in the likeness of sinful flesh, on account of sin: He condemned sin in the flesh, 4 that the righteous requirement of the law might be fulfilled in us who do not walk according to the flesh but according to the Spirit. Romans 8:2-4_
+
+
+Yes by simply believing in Jesus we don't have to obey any more laws, beause the best laws do not produce better behaviour of human righteousness, they are simply golden prisons. 
+_But you have received the Holy Spirit,[h] and he lives within you, so you don’t need anyone to teach you what is true. For the Spirit[i] teaches you everything you need to know, and what he teaches is true—it is not a lie. So just as he has taught you, remain in fellowship with Christ. 1 John 3:27_
+
+_Since we know that Christ is righteous, we also know that all who do what is right are God’s children. 1 John 3:29_
+
+_But you are not like that, for the Holy One has given you his Spirit,[e] and all of you know the truth. 1 John 3:20_
+
+So simply by allowing God to work in us to do right things for other to oberve in us. Whew! Heavy, The apostles wrote heavily against false doctrine, for love as the first sign of rightness being produced and the importance of community. That's it, no laws!! It puts into perspective when Apostle Paul says to follow him as he follows Christ. Jesus being the way is clear now. If there is no law, the only thing we know to do say and speak is Jesus, Jesus , Jesus.
+
+Should be fall back on the safe laws, like the ten commandments etc. I belive the laws are great as guardians/training wheels i.e. to be taught to children etc. They are great guardrails. But a time must come a christian must not be in a crib anymore but learn to follow the shepherds voice so they do not walk out the balcony but safely arrive at their destination, all of this in being like their father.
+
+_But you are not like that, for the Holy One has given you his Spirit, and all of you know the truth._
 
 ______________________________________________________________
 
