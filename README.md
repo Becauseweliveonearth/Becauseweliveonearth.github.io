@@ -89,7 +89,7 @@ _Since we know that Christ is righteous, we also know that all who do what is ri
 
 _But you are not like that, for the Holy One has given you his Spirit, and all of you know the truth. 1 John 3:20_
 
-So simply by allowing God to work in us to do right things for others to observe in us. Whew!
+So simply all we do is allow God to work in us and through us to do right things for others to observe in us. Whew!
 
 The apostles wrote heavily against false doctrine, for love as the first sign of rightness being produced and the importance of community. That's it, no laws!! 
 
