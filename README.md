@@ -107,16 +107,21 @@ ______________________________________________________________
 
 # Previous Posts: 
 <h3 style="text-align: center;"> <ins>All POSTS</ins></h3>
-1. [The Back Door in Christianity](https://becauseweliveonearth.com/#the-back-door-in-christianity)
-2. [Strength to live](https://becauseweliveonearth.com/#strength-to-live)
-3. [Fighting Styles](https://becauseweliveonearth.com/#fighting-styles)
-4. [Elyon](https://becauseweliveonearth.com/#Elyon)
-5. [Lunatic](https://becauseweliveonearth.com/#lunatic)
-6. [Infidel](https://becauseweliveonearth.com/#infidel)
-7. [Renegade](https://becauseweliveonearth.com/#renegade)
-8. [Chosen](https://becauseweliveonearth.com/#chosen)
-9. [Sons of Zeruiah](https://becauseweliveonearth.com/#sons-of-zeruiah)
-10. [We are made incomplete](https://becauseweliveonearth.com/#we-are-made-incomplete)
+1. [The one place God dwells](https://becauseweliveonearth.com/#the-one-place-God-dwells)
+2. [The Back Door in Christianity](https://becauseweliveonearth.com/#the-back-door-in-christianity)
+3. [Strength to live](https://becauseweliveonearth.com/#strength-to-live)
+4. [Fighting Styles](https://becauseweliveonearth.com/#fighting-styles)
+5. [Elyon](https://becauseweliveonearth.com/#Elyon)
+6. [Lunatic](https://becauseweliveonearth.com/#lunatic)
+7. [Infidel](https://becauseweliveonearth.com/#infidel)
+8. [Renegade](https://becauseweliveonearth.com/#renegade)
+9. [Chosen](https://becauseweliveonearth.com/#chosen)
+10. [Sons of Zeruiah](https://becauseweliveonearth.com/#sons-of-zeruiah)
+11. [We are made incomplete](https://becauseweliveonearth.com/#we-are-made-incomplete)
+
+## The one place God dwells
+
+It is vey obvious that God dwells in the miraculous, in the supernatural. And many lyrics wax strong on telling us to observe God in the ordinary, in the everyday moments, in the stillness. However, here is ano
 
 ## Strength to live
 1. There is a certain autopilot life can be on that might seem good where even going on vacation is on autopilot. Having a great work/school/life routine.
