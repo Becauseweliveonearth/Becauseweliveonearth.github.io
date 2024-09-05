@@ -20,6 +20,34 @@ _A collection of writings..._
 
 
 
+## Renegade
+To become defined by Godness
+
+Yet we divert our new realizations to pursuing other things
+
+To be defined by God is to be in the:
+
+Godness - trapping a part of God apart from God
+
+God - alive and living
+
+
+>> God standeth in the congregation of the mighty; he judgeth among the gods.
+>> How long will ye judge unjustly, and accept the persons of the wicked? Selah.
+>> They know not, neither will they understand; they walk on in darkness: all the foundations of the earth are out of course.
+>>  I have said, Ye are gods; and all of you are children of the most High. Psalm 82:6
+
+______________________________________________________________
+
+______________________________________________________________
+
+# Previous Posts: 
+<h3 style="text-align: center;"> <ins>All POSTS</ins>  </h3>
+[We are made incomplete](https://becauseweliveonearth.com/#we-are-made-incomplete)
+[Sons of Zeruiah](https://becauseweliveonearth.com/#sons-of-zeruiah)
+[Chosen](https://becauseweliveonearth.com/#chosen)
+[Rene
+
 
 ## Chosen
 From our perspective, we are grown 
@@ -63,17 +91,6 @@ We then as the body of Christ in groups become a holy nation.
 To be chosen....
 
 >>   You did not choose Me, but I chose you and appointed you that you should go and bear fruit, and that your fruit should remain, that whatever you ask the Father in My name He may give you. John 15:16
-
-______________________________________________________________
-
-______________________________________________________________
-
-# Previous Posts: 
-<h3 style="text-align: center;"> <ins>All POSTS</ins>  </h3>
-[We are made incomplete](https://becauseweliveonearth.com/#we-are-made-incomplete)
-[Sons of Zeruiah](https://becauseweliveonearth.com/#sons-of-zeruiah)
-
-
 
 
 ## We are made incomplete
