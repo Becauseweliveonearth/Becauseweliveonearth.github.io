@@ -27,7 +27,7 @@ _But now the righteousness of God apart from the law is revealed, being witnesse
 
 What is the law in this case? The law is a specific moral standard on how to live, what to eat etc. If you had issues making decisions, the law provided the best practices for aligning with God and placating that gnawing feeling of being far from God.  
 
-And yes a way in the bible where God doesn't count the sins anymore.
+And yes there is a way in the bible where God doesn't count the sins anymore.
 
 _Blessed is he whose transgression is forgiven,
 Whose sin is covered.
@@ -36,13 +36,14 @@ And in whose spirit there is no deceit.Psalm 32:1-2_
 
 
 First why was the law given if a back door is gong to exist?
-_“But,” some might say, “our sinfulness serves a good purpose, for it helps people see how righteous God is. Isn’t it unfair, then, for him to punish us?” (This is merely a human point of view.) Romans3:5_
 
 _Let me put it another way. The law was our guardian until Christ came; it protected us until we could be made right with God through faith. 25 And now that the way of faith has come, we no longer need the law as our guardian.Galatians 3:24_
 
 _But the Scriptures declare that we are all prisoners of sin, so we receive God’s promise of freedom only by believing in Jesus Christ.Galatians 3:22_
 
 _Why, then, was the law given? It was given alongside the promise to show people their sins. But the law was designed to last only until the coming of the child who was promised. God gave his law through angels to Moses, who was the mediator between God and the people. Galatians 3:19_
+
+_“But,” some might say, “our sinfulness serves a good purpose, for it helps people see how righteous God is. Isn’t it unfair, then, for him to punish us?” (This is merely a human point of view.) Romans3:5_
 
 
 So now that there is no law, how do we know what to do? What is right and wrong?
