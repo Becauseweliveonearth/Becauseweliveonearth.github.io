@@ -18,6 +18,10 @@ _A collection of writings..._
 <button style="text-align: right;" markdown="1"> [Subscribe](https://mailchi.mp/62aa1e6258a4/because-we-live-on-earth){: .btn .btn-purple }</button> </p>
 </h2>
 
+## The one place God dwells
+
+It is vey obvious that God dwells in the miraculous, in the supernatural. And many lyrics wax strong on telling us to observe God in the ordinary, in the everyday moments, in the stillness. However, here is ano
+
 ## The Back Door in Christianity
 
 
@@ -119,49 +123,47 @@ ______________________________________________________________
 10. [Sons of Zeruiah](https://becauseweliveonearth.com/#sons-of-zeruiah)
 11. [We are made incomplete](https://becauseweliveonearth.com/#we-are-made-incomplete)
 
-## The one place God dwells
 
-It is vey obvious that God dwells in the miraculous, in the supernatural. And many lyrics wax strong on telling us to observe God in the ordinary, in the everyday moments, in the stillness. However, here is ano
 
 ## Strength to live
-1. There is a certain autopilot life can be on that might seem good where even going on vacation is on autopilot. Having a great work/school/life routine.
-2. Yet we need strength to live life on God's terms not blown by the winds of our flesh, the winds of society and the winds of culture.
-3. Autopilot is good, planes fly on autopilot. But there needs to be a pilot - the pilot shoul be alive and able to respond when needed. If truly the spirirt of God lives in us, we have signs of life and should respond to the God-life around us
-4. Een when we respond, we still need grace. A different wind of mechanism, sometimes I wonder what we humans do - stop wrestling, start responding to the spirirt of God.
+1. There is a certain autopilot; life can be on that might seem good; where even going on vacation is on autopilot or having a great work/school/life routine.
+2. Yet we need strength to live life on God's terms, not blown by the winds of our flesh, the winds of society, and the winds of culture.
+3. Autopilot is good; planes fly on autopilot. But there needs to be a pilot—the pilot should be alive and able to respond when needed. If truly the spirit of God lives in us, we have signs of life and should respond to the God-life around us.
+4. Even when we respond, we still need grace. A different wind of mechanism, sometimes I wonder what we humans do—stop wrestling, start responding to the spirit of God.
 
 ## Fighting Styles
-I once read about a chinese fighting style where when fighting you move with the opponent (i.e. whatever direction the opponent was moving). I laughed - how is that fighting? Shouldn't you be contrary to your opponent? 
+I once read about a Chinese fighting style where, when fighting, you move with the opponent (i.e., whatever direction the opponent was moving). I laughed—how is that fighting? Shouldn't you be contrary to your opponent? 
 
-But in hindsight, if you ever sight opposition, sometimes hitting back is not ideal - flow in the same direction until you find a gap, a ladder, a gradient. Often times as a leader abrupt change is too abrupt.
+But in hindsight, if you ever sight opposition, sometimes hitting back is not ideal—flow in the same direction until you find a gap, a ladder, a gradient. Often times, as a leader, abrupt change is too abrupt.
 
-Especially in Kingdom context, when you don't want to hurt your opponents. You should be fighting principalities and powers not your brother and sister. Flow in thier direction for now.
+Especially in Kingdom context, when you don't want to hurt your opponents. You should be fighting principalities and powers, not your brother and sister. Flow in their direction for now.
 
 ## Elyon
-So God's people, imagine this earh hangs on God instead of nothing or gravity whichever your understanidng accomodates now. 
+So God's people - imagine this earth hangs on God instead of nothing or gravity (whichever you currently think it is). 
 
-It is how we are, everything flows from God, our lifes perspetive shouln't flow from ourselves too but from God. And only then do we find what we are looking to, whatever it is. You can't eat desert before dinner, let's ome to dinner hungry, and let God fill us, hoping to be full.
+Yet that is the reality -  everything flows from God. If that's true, our life perspective shouldn't flow from ourselves too but from God. And only then do we find what we are looking for, whatever it is. You can't eat desert before dinner and expect to be satisfied.  Let's come to dinner hungry, and let God fill us, hoping to be full.
 
->>But you have come to Mount Zion and to the city of the living God, the heavenly Jerusalem, to an innumerable company of angels, to the [j]general assembly and church of the firstborn who are registered in heaven, to God the Judge of all, to the spirits of just men made perfect,  to Jesus the Mediator of the new covenant, and to the blood of sprinkling that speaks better things than that of Abel. Heb 12:22-24
+>>But you have come to Mount Zion and to the city of the living God, the heavenly Jerusalem, to an innumerable company of angels, to the [j]general assembly and church of the firstborn who are registered in heaven, to God the Judge of all, to the spirits of just men made perfect,  to Jesus the Mediator of the new covenant, and to the blood of sprinkling that speaks better things than that of Abel. Heb 12:22-24
 
 
 
 ## Lunatic
-We live the life on earth from a different perspective. We break social norms if need be, if not, then as is. We despie the shame and look to the Joy set before Christ.
+We live life on earth from a different perspective. We break social norms if need be; if not, then as is. We despise the shame and look to the joy set before Christ.
 
->>looking unto Jesus, the author and finisher of our faith, who for the joy that was set before Him endured the cross, despising the shame, and has sat down at the right hand of the throne of God. Heb 12:2
+>>Looking unto Jesus, the author and finisher of our faith, who for the joy that was set before Him endured the cross, despising the shame, and has sat down at the right hand of the throne of God. Heb 12:2
 
 ## Chaos
-But we still have to live in this world. We re God's people on earth, not in heaven. What ensues is Chaos.
+But we still have to live in this world. We're God's people on earth, not in heaven. What ensues is chaos.
 
-_Light shines in darkness and the darkness cannot comprehend it._  
+_Light shines in darkness, and the darkness cannot comprehend it._
 
-What happens when the darkness is so great and individual lights are simply shining around, or some simply corner  light for their family or soiety etc. - Chaos is what happens.
+What happens when the darkness is so great and individual lights are simply shining around, or some simply get light for their family or society, etc.? Chaos is what happens.
 
-Or some simply re ontent gripping onto the hands of others, never knowing the darkness or minding it. 
+Some people are simply content to grip onto the hands of others, never knowing the darkness or minding it.
 
 Choose my dear friend.
 
-But above all this how does the gospel apply to our daily life.
+But above all this, how does the gospel apply to our daily lives?
 
 
 >> In the beginning God created the heavens and the earth.
@@ -174,15 +176,13 @@ But above all this how does the gospel apply to our daily life.
 
 
 ## Infidel
-Sometimes we look over to our family and friends, the heartwarming traditions we grew up in, how can all of this be wrong? 
+Sometimes we look over to our family and friends and the heartwarming traditions we grew up in. How can all of this be wrong? 
 
-_“Do not think that I came to bring peace on earth. I did not come to bring peace but a sword. For I have come to ‘set[a] a man against his father, a daughter against her mother, and a daughter-in-law against her mother-in-law’; and ‘a man’s enemies will be those of his own household.”_
+_“Do not think that I came to bring peace on earth. I did not come to bring peace but a sword. For I have come to set a man against his father, a daughter against her mother, and a daughter-in-law against her mother-in-law’; and ‘a man’s enemies will be those of his own household.”_
 
 To not be like the world
 
-Each of us live in bubbles and sometimes we can't really see all that God sees.
-
-
+Each of us live in bubbles, and sometimes we can't really see all that God sees.
 
 >> Blotting out the handwriting of ordinances that was against us, which was contrary to us, and took it out of the way, nailing it to his cross; Col 2:14
 
@@ -210,13 +210,13 @@ God - alive and living
 
 
 ## Chosen
-From our perspective, we are grown 
+From our perspective, we are grown 
 
 Christians
 
-We have chosen to serve God, dedicate our live to him.
+We have chosen to serve God, dedicate our lives to him.
 
-From God's perspective He created us and chose to include us in something he was planning. 
+From God's perspective, He created us and chose to include us in something he was planning. 
 
 What is this?
 
@@ -224,33 +224,33 @@ _“But you are a chosen generation, a royal priesthood, a holy nation, His own 
 
 God called us into his family
 
-We are chosen by God and we accept it
+We are chosen by God, and we accept it
 
-We accept something that was given 
+We accept something that was given 
 
-God gave it first.  
+God gave it first
 
-We become God's people 
+We become God's people
 
-People chosen to multiply God. 
+People chosen to multiply God
 
-To show forth the works of him who called us. 
+To show forth the works of him who called us
 
-It is not enough to have God behind us and then we are pursuing worthless things (at least compared to God). Like the children of Israel using the abundance God gave them  in hopes of certainty from a calf. 
+It is not enough to have God behind us, and then we are pursuing worthless things (at least compared to God). Like the children of Israel using the abundance God gave them in hopes of certainty from a calf
 
-We have to be like God, 
+We have to be like God
 
-Like Jesus. 
+Like Jesus
 
 To become defined by God
 
-God is my description 
+God is my description 
 
-We then as the body of Christ in groups become a holy nation. 
+We then, as the body of Christ, in groups become a holy nation. 
 
 To be chosen....
 
->>   You did not choose Me, but I chose you and appointed you that you should go and bear fruit, and that your fruit should remain, that whatever you ask the Father in My name He may give you. John 15:16
+>>   You did not choose Me, but I chose you and appointed you that you should go and bear fruit, and that your fruit should remain, that whatever you ask the Father in My name He may give you. John 15:16
 
 
 
