@@ -20,7 +20,17 @@ _A collection of writings..._
 
 ## The one place God dwells
 
-It is vey obvious that God dwells in the miraculous, in the supernatural. And many lyrics wax strong on telling us to observe God in the ordinary, in the everyday moments, in the stillness. However, here is ano
+It is vey obvious that God dwells in the miraculous, in the supernatural. And many lyrics wax strong on telling us to observe God in the ordinary, in the everyday moments, in the stillness. However, there is another place God dwells, in a place where there are no gaps. I will explain.
+
+This world feels like the world of gaps, betweeen what is and what could be, reality and promises, plans and expectations, frustrations and acceptance. 
+
+_Blessed is the man to whom the Lord does not impute iniquity, And in whose spirit there is no deceit._
+
+What does it mean for there to be no deciet in a man?
+
+It doesn't mean the man is perfect, it just means the man is not lying to himself. He is also not hiding anything. His promises are his reality, there is no gap between his frustration and acceptance, it happens right after the other. What is, is what could be. There is oneness - and this oneness is where God dwells.
+This man does not lie to himself most importantly and he certainly does not lie to others. 
+
 
 ## The Back Door in Christianity
 
