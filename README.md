@@ -20,8 +20,8 @@ _A collection of writings..._
 
 ## God of Emotions
 
-_"Therefore, I will mourn and lament.
-I will walk around barefoot and naked.
+_"Therefore, I will mourn and lament._
+_I will walk around barefoot and naked._
 I will howl like a jackal
 and moan like an owl.
 For my people's wound
