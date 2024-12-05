@@ -18,6 +18,27 @@ _A collection of writings..._
 <button style="text-align: right;" markdown="1"> [Subscribe](https://mailchi.mp/62aa1e6258a4/because-we-live-on-earth){: .btn .btn-purple }</button> </p>
 </h2>
 
+## God of Emotions
+
+_"Therefore, I will mourn and lament.
+I will walk around barefoot and naked.
+I will howl like a jackal
+and moan like an owl.
+For my people's wound
+is too deep to heal.
+It has reached into Judah,
+even to the gates of Jerusalem."_
+
+Micah 1: 8-9
+
+Often times, we have very strong emotions, yet we often forget to look to the person we got the emotions from-Yaweh. In Micah 1:8-9, we see very strong emotions that God shows for Jerusalem, if God is a God of justice, this had to take place and it was painful for God to watch. In hindsight, we realize it is silly of us to imagine that God does not understand us,od made us afterall. In truth, because often these whirlwind of emotions are not pure which contradict to our knowledge that God is light, God is pure, singular. Yet when bouts of emotions come upon us they are anything but defined, the mixture of love and something else, sadness and something else and in recognizing the singularity of God, we run we say God hold on, let me detangle my emotions before I come to you.
+
+But God made those emotions, because you and your people do not have a name for it, does not mean God does not have a name for it. For example, an emotion like nostalgia, what I would call a secondary emotion, a combination of primary emotions such as Joy and happiness. In the book of Jeremiah, and Micah, we see the emotions of God revealed, God's heart is breaking over what is eventually going to happen, Israel is too far gone. Everyone will have to be removed, the place fixed and then they can be brought back hopefully having repented. The methods of removal are brutal. There is no emotion you feel reading that book, that God did not feel either giving the prophesy of fufilling the prophesy.
+
+For God that dwells in eternity, how could we understand the emotion of an eternal love, or eternal wrath, eternal kindness or eternal grief. The weight of a feeling that is not constrained by time, that is forever felt. Whether it is love towards you or anger towards humanity.
+
+And here we say thank God for Jesus, by whose sacrifice the eternal weight of wrath was turned away by an eternal sacrifice of purity, whose blood was sprinkled over each and everything thing would have caused God to turn away his face from us forever. Instead, this blood - an eternal currency, always accepted, valid in all cultures, covers us now and always. All we feel is an eternal love, whom Apostle Paul describes that is deep, is wide and is higher than we could ever know- a love with origins outside of time, with origins from of old. Sounds pretty emotional to me.
+
 ## The one place God dwells
 
 It is vey obvious that God dwells in the miraculous, in the supernatural. And many lyrics wax strong on telling us to observe God in the ordinary, in the everyday moments, in the stillness. However, there is another place God dwells, in a place where there are no gaps. I will explain.
