@@ -18,15 +18,22 @@ _A collection of writings..._
 <button style="text-align: right;" markdown="1"> [Subscribe](https://mailchi.mp/62aa1e6258a4/because-we-live-on-earth){: .btn .btn-purple }</button> </p>
 </h2>
 
+## Following someone
+In life there has to be unity, or balance, and I discovered a very interesting leader and follower relationship. Everyone has a potential to be both, and these attributes must always be in use, meaning even the biggest leaders must be a follower of someone or something and it means even leaders have leaders.
+
+If everybody must have a leader, who is everyone following. For the christian, it's obvious the answer is christ. But for the some its ego, some its pride, some people it's the crowd, others its culture, others its popular people, the past, the familiar. For others, the final decision maker is whatever keeps up with apperances etc. so many things. 
+
+Even for christians, it requires the daily work and hand of Christ for us to course correct, and come under his leadership. When Jesus offers us his leadership in every area of our lives. It's the freest we can get, don't go running off with a stranger now little kid. Stay by your father.
+
 ## God of Emotions
 
-_"Therefore, I will mourn and lament.__
-I will walk around barefoot and naked.__
-I will howl like a jackal__
-and moan like an owl.__
-For my people's wound__
-is too deep to heal.__
-It has reached into Judah,
+_"Therefore, I will mourn and lament.\
+I will walk around barefoot and naked.\
+I will howl like a jackal\
+and moan like an owl.\
+For my people's wound\
+is too deep to heal.\
+It has reached into Judah,\
 even to the gates of Jerusalem."_
 
 Micah 1: 8-9
