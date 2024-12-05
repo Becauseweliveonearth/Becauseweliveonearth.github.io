@@ -20,12 +20,12 @@ _A collection of writings..._
 
 ## God of Emotions
 
-_"Therefore, I will mourn and lament._
-_I will walk around barefoot and naked._
-I will howl like a jackal
-and moan like an owl.
-For my people's wound
-is too deep to heal.
+_"Therefore, I will mourn and lament.__
+I will walk around barefoot and naked.__
+I will howl like a jackal__
+and moan like an owl.__
+For my people's wound__
+is too deep to heal.__
 It has reached into Judah,
 even to the gates of Jerusalem."_
 
