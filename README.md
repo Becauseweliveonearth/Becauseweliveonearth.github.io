@@ -18,6 +18,18 @@ _A collection of writings..._
 <button style="text-align: right;" markdown="1"> [Subscribe](https://mailchi.mp/62aa1e6258a4/because-we-live-on-earth){: .btn .btn-purple }</button> </p>
 </h2>
 
+## Omo Igbala
+Omo Igbala is a yoruba word that means, Child of Salvation. It's a very interesting word that made me re-examine the exclusivity of salvation, the calling of the saints, the seperation of the ecclesia church, and the preciousness of salvation. Jesus has claimed that no one comes to his father except by him, Jesus has claimed that God is his father and only he has direct access to him and we have all belived. And to all those who believe, God bunches us together.
+
+As Eugene Peterson says, The congregation is not about us. It is about God. God calls a people. Jesus named 12 disciples to be with him. The spirit descends upon 120 praying men and women filling them with himself. The people we gather with for worship each Sunday and work with as salt and light are not of our own choosing. God calls and forms this people, whom the Hebrew prophets are bold to designate "the people of God," and St. Paul was unembarrased to call "saints"
+
+For the long time Christians all called each other "saints." They were all saints regardless of how well or badly they lived, of how experienced or inexperienced they were.  The word _saint_ did not refer to the quality or virtue of their acts, but to the kind of life to which they had been chosen, life on a battlefield. It was not a title given after a spectacular performance, but a mark of whose side they were on. 
+
+Omo Igbala feels like an encapuslation of this, a reminder to the children that have been chosen by God, all those united by the salvation in Jesus.
+
+
+
+
 ## Following someone
 In life there has to be unity, or balance, and I discovered a very interesting leader and follower relationship. Everyone has a potential to be both, and these attributes must always be in use, meaning even the biggest leaders must be a follower of someone or something and it means even leaders have leaders.
 
