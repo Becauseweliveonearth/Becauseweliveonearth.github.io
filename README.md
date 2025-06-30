@@ -20,6 +20,7 @@ _A collection of writings..._
 
 ## Eden
 Been a while, in a departure from centering around the words of the bible. I will be talking about my personal experiences. Afterall the bible says 
+
 _2 You yourselves are our letter, written on our hearts, known and read by everyone.\
 3 You show that you are a letter from Christ, the result of our ministry,\ 
 written not with ink but with the Spirit of the living God, not on tablets of stone but on tablets of human hearts.2 Cori 3:2-3_
@@ -27,9 +28,10 @@ written not with ink but with the Spirit of the living God, not on tablets of st
 There is something about being young and a christian....and looking for spiritual discipleship. As someone who has attended 8 churches in the state where I live, half of them for over a year, actively serving in them, I once attended three churches almost simultaneously. I see a lot of young people around me going through this phase of life and what I thought was an anomaly has become the defining trait of discipleship in this generation. 
 
 So here is to acknowledging my mistakes caused by my inexperience, pride or arroragance and like Jesus said to Peter 
+
 _And the Lord said, “Simon, Simon! Indeed, Satan has asked for you,\
-that he may sift you as wheat. 32 But I have prayed for you, \
-that your faith should not fail; _
+that he may sift you as wheat. 32 But I have prayed for you,\
+that your faith should not fail;_
 
 and when you have returned to Me, strengthen your brethren.
 
@@ -37,9 +39,10 @@ As I write, I have a note in front of me that says "With God's help I will be vu
 
 Firstly, I am glad I can finally talk about this, because for a long time my emotions were tangled and it was hard to discern doctrine from religion from personal behaviour. But recently, as my brother went through a similar phase of life I was able to pick apart which was which, and I hope this helps someone.
 
-The first mistake I made was not thinking or praying deeply about the church I attended. I have gone to churches because they were near me, because my friend went there, because of many reasons, ultimately picking a church is very important and should not be taken as a temporary event that can change tomorrow, you want to give yourself a chance to grow roots so much so it is difficult to be uprooted.
+The first mistake I made was not thinking or praying deeply about the church I attended. I have gone to churches because they were near me, because my friend went there, because of many reasons, ultimately picking a church is very important and should not be taken as a temporary event that can change tomorrow, you want to give yourself a chance to grow roots so much so it is difficult to be uprooted. This is hard when that phase of your life is not exactly known for permanence, but not having a single church you go to will make exacarbate this impermanence.
 
 _Those who are planted in the house of the LORD Shall flourish in the courts of our God. Psalm 92:13_
+
 Whichever church anyone chooses to attend, they must attend and stick to it. It was my pastor that highlighted this, I once wanted to go to a youth retreat and on hearing this word canceled it, and then my church offered one the next month. Sometimes, the mystery of the gospel is that our faith in God for discipleship will bring all the resources we need to us. Constant moving of a plant hurt its chances for growth, the shepherd makes the sheep lie in still waters.
 
 It doesn't mean your pastor is solely responsible for your spiritual growth, I think the analogy of a university works here. The lecturer is only responsible for about 30% of the students success, there are teaching assistants, lab assistants, graders, admin staff, lecture series. In the same way, there are revivalists, traveling ministers, iterant minisries, all put in place by God who has thought about all you need. You need not go crafting your own syllabus, you need to discover the biblical pattern and find yours in christ.
