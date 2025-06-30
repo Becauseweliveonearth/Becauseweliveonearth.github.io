@@ -20,7 +20,7 @@ _A collection of writings..._
 
 ## Eden
 Been a while, in a departure from centering around the words of the bible. I will be talking about my personal experiences. Afterall the bible says 
-_2 You yourselves are our letter, written on our hearts, known and read by everyone. \
+_2 You yourselves are our letter, written on our hearts, known and read by everyone.\
 3 You show that you are a letter from Christ, the result of our ministry,\ 
 written not with ink but with the Spirit of the living God, not on tablets of stone but on tablets of human hearts.2 Cori 3:2-3_
 
