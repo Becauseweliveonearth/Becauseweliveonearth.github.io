@@ -50,10 +50,6 @@ In the next installment, I will talk about the mistakes I made in the churches t
 
 
 
-
-1. God is everywhere, in all churches, in all church gatherings. We don't doubt that but we don't apply our 
-
-
 ## Omo Igbala
 Omo Igbala is a yoruba word that means, Child of Salvation. It's a very interesting word that made me re-examine the exclusivity of salvation, the calling of the saints, the seperation of the ecclesia church, and the preciousness of salvation. Jesus has claimed that no one comes to his father except by him, Jesus has claimed that God is his father and only he has direct access to him and we have all belived. And to all those who believe, God bunches us together.
 
