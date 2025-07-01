@@ -18,6 +18,20 @@ _A collection of writings..._
 <button style="text-align: right;" markdown="1"> [Subscribe](https://mailchi.mp/62aa1e6258a4/because-we-live-on-earth){: .btn .btn-purple }</button> </p>
 </h2>
 
+## Faith to Execute
+I once heard DDK say, the faith you use to believe God for rent is the same faith you use to believe God to start a business. Took me about 3 months to download that one. 
+
+So here are some of my thoughts on building.
+1. Progression for building is Spirit, Soul, Body. Start in the spirit, find alignment with Gods word on what you want to build.
+2. Pray, pray, pray, getting a word will ensure you see the finish line but prayer will refresh your soul on the way, pray
+3. Obey, obey quickly, oftentimes God will be patience with us because he has time, so the onus is on us to obey instructions as quickly as possible.
+
+Lastly dont stop until you see something happen in the physical. This shows that you can properly Lambano it
+
+Faith is a moving train, one faith opens up the next faith, keep it moving.
+If you dont have the resources, remember there is always a way. Carpe Diem In Christ
+
+
 ## Eden
 Been a while, in a departure from centering around the words of the bible. I will be talking about my personal experiences. Afterall the bible says 
 
