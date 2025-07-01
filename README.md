@@ -22,16 +22,16 @@ _A collection of writings..._
 Been a while, in a departure from centering around the words of the bible. I will be talking about my personal experiences. Afterall the bible says 
 
 _2 You yourselves are our letter, written on our hearts, known and read by everyone.\
-3 You show that you are a letter from Christ, the result of our ministry\ 
+3 You show that you are a letter from Christ, the result of our ministry,\ 
 written not with ink but with the Spirit of the living God, not on tablets of stone but on tablets of human hearts.2 Cori 3:2-3_
 
 There is something about being young and a christian....and looking for spiritual discipleship. As someone who has attended 8 churches in the state where I live, half of them for over a year, actively serving in them, I once attended three churches almost simultaneously. I see a lot of young people around me going through this phase of life and what I thought was an anomaly has become the defining trait of discipleship in this generation. 
 
 So here is to acknowledging my mistakes caused by my inexperience, pride or arroragance and like Jesus said to Peter 
 
-_And the Lord said, “Simon, Simon! Indeed, Satan has asked for you,\
+_"And the Lord said, “Simon, Simon! Indeed, Satan has asked for you,\
 that he may sift you as wheat. 32 But I have prayed for you,\
-that your faith should not fail;_
+that your faith should not fail;"_
 
 and when you have returned to Me, strengthen your brethren.
 
