@@ -39,7 +39,7 @@ As I write, I have a note in front of me that says "With God's help I will be vu
 
 Firstly, I am glad I can finally talk about this, because for a long time my emotions were tangled and it was hard to discern doctrine from religion from personal behaviour. But recently, as my brother went through a similar phase of life I was able to pick apart which was which, and I hope this helps someone.
 
-The first mistake I made was not thinking or praying deeply about the church I attended. I have gone to churches because they were near me, because my friend went there, because of many reasons, ultimately picking a church is very important and should not be taken as a temporary event that can change tomorrow, you want to give yourself a chance to grow roots so much so it is difficult to be uprooted. This is hard when that phase of your life is not exactly known for permanence, but not having a single church you go to will make exacarbate this impermanence.
+The first mistake I made was not thinking or praying deeply about the church I attended. I have gone to churches because they were near me, because my friend went there, because of many reasons, ultimately picking a church is very important and should not be taken as a temporary event that can change tomorrow, you want to give yourself a chance to grow roots so much so it is difficult to be uprooted. This is hard when that phase of your life is not exactly known for permanence, but not having a single church you go to will exacarbate this impermanence.
 
 _Those who are planted in the house of the LORD Shall flourish in the courts of our God. Psalm 92:13_
 
