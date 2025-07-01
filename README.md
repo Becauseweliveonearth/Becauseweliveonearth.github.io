@@ -13,7 +13,7 @@ _A collection of writings..._
 
 <h2>
   <p style="text-align: left;" markdown="1"> 
-  <button style="text-align: center;" markdown="1">[Latest](https://becauseweliveonearth.com/#we-are-made-incomplete){: .btn .btn-purple }  | [All Posts](https://becauseweliveonearth.github.io/#all-posts){: .btn .btn-purple }</button> </p>
+  <button style="text-align: center;" markdown="1">[Latest](https://becauseweliveonearth.com/#eden){: .btn .btn-purple }  | [All Posts](https://becauseweliveonearth.github.io/#all-posts){: .btn .btn-purple }</button> </p>
   <p style="text-align: right;" markdown="1"> 
 <button style="text-align: right;" markdown="1"> [Subscribe](https://mailchi.mp/62aa1e6258a4/because-we-live-on-earth){: .btn .btn-purple }</button> </p>
 </h2>
