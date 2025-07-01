@@ -45,9 +45,9 @@ _Those who are planted in the house of the LORD Shall flourish in the courts of 
 
 Whichever church anyone chooses to attend, they must attend and stick to it. It was my pastor that highlighted this, I once wanted to go to a youth retreat and on hearing this word canceled it, and then my church offered one the next month. Sometimes, the mystery of the gospel is that our faith in God for discipleship will bring all the resources we need to us. Constant moving of a plant hurt its chances for growth, the shepherd makes the sheep lie in still waters.
 
-It doesn't mean your pastor is solely responsible for your spiritual growth, I think the analogy of a university works here. The lecturer is only responsible for about 30% of the students success, there are teaching assistants, lab assistants, graders, admin staff, lecture series. In the same way, there are revivalists, traveling ministers, iterant minisries, all put in place by God who has thought about all you need. You need not go crafting your own syllabus, you need to discover the biblical pattern and find yours in christ.
+It doesn't mean your pastor is solely responsible for your spiritual growth, I think the analogy of a university works here. The lecturer is only responsible for about 30% of the students success, there are teaching assistants, lab assistants, graders, admin staff, lecture series. In the same way, there are revivalists, traveling ministers, iterant ministries, all put in place by God who has thought about all you need. You need not go crafting your own syllabus, you need to discover the biblical pattern and find yours in christ.
 
-Ultimately, the bible says to call no one teacher, God is the teacher, and he specially watches over each of his students and the pastors, ministers, deacons are all there to assist God in the work he is doing in your life. They are there for you. Paid by the blood of Jesus. 
+Ultimately, the bible says to call no one teacher, God is the teacher, and he specially watches over each of his students, and the pastors, ministers, deacons are all there to assist God in the work he is doing in your life. They are there for you. Paid by the blood of Jesus. 
 
 In the next installment, I will talk about the mistakes I made in the churches that hindered chance for real growth.
 
