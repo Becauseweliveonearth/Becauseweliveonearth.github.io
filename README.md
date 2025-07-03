@@ -63,6 +63,8 @@ It doesn't mean your pastor is solely responsible for your spiritual growth, I t
 
 Ultimately, the bible says to call no one teacher, God is the teacher, and he specially watches over each of his students, and the pastors, ministers, deacons are all there to assist God in the work he is doing in your life. They are there for you. Paid by the blood of Jesus. 
 
+Next, is the fact that God groups us in the kingdom in tribes. Some churches focus more on faith, others on concerations of fasting, others on the prophetic, others on purity. We cannot do the christian walk alone, even God is not alone in himself, how much more us. The first miracle Jesus did in Cana, his discples were there. Prayerfully consider that the church you attend plays much more role in your discipleship than you think.
+
 In the next installment, I will talk about the mistakes I made in the churches that hindered chance for real growth.
 
 
